@@ -1,0 +1,45 @@
+h1 {
+	font-family: 'Roboto Mono', monospace;
+	text-align: center;
+}
+h2 {
+	text-align: center;
+	color: #fff;	
+}
+a:link, a:visited {
+	font-weight: bold;
+	text-decoration: none;
+	color: inherit;
+}
+#drop {
+    text-align: center;
+}
+#coll {
+    text-align: center;
+    color: #5d5d5d;
+}
+.coll-1 {
+    background-color: #4d527a;
+}
+.coll-2 {
+    background-color: #db7093;    
+}
+#banner {
+	background-color: #c0c0c0;
+	color: #fff;
+}
+#navBar {
+    text-align: center;
+}
+#n1 {
+	font-family: 'Poppins', sans-serif;
+}
+#n2 {
+	font-family: 'Indie Flower', cursive;
+}	
+#n3 {
+	font-family: 'Spectral SC', serif;
+}
+#n4 {
+	font-family: 'Libre Barcode 39 Text', cursive;
+}

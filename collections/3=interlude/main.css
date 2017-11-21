@@ -1,0 +1,35 @@
+/* INTERLUDE ~ inbetween now and then, here and when, lies the essence of our souls */
+/* http://instagram.com/poetrique */
+
+ol, p {
+	font-family: 'Spectral SC', serif;
+	text-align: center;
+	color: #db7093;
+}
+a, h2, h3, h4 {
+	font-family: 'Nunito', sans-serif;
+	color: #505050;
+}
+#title {
+	color: #db7093;
+}
+#moniker {
+	font-style: italic;
+	font-style: bold;
+	text-align: center;
+	font-size: 1.5em;
+}
+#footnote {
+	font-style: italic;
+	font-size: 0.7em;
+}	
+#menu {
+	font-style: bold;
+	text-align: center;
+	color: #db7093;
+}
+a:link, a:visited {
+	font-weight: bold;
+	text-decoration: none;
+	color: inherit;
+}

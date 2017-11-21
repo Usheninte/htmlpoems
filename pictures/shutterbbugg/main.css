@@ -1,0 +1,24 @@
+/** @SHUTTERBBUGG - Photography Like You Have Never Known **/
+
+h1, h3, h4, h5 {
+	font-family: 'Roboto Mono', monospace;
+    color: #5d5d5d;
+}
+a:link, a:visited {
+	font-weight: bold;
+	text-decoration: none;
+	color: inherit;
+}
+.title-footer {
+    text-align: center;
+}
+#banner {
+	background-color: #c0c0c0;
+    text-align: center;
+	color: #fff;
+}
+#menu {
+	font-style: bold;
+	text-align: center;
+	color: #5d5d5d;
+}

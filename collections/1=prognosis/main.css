@@ -1,0 +1,30 @@
+/* PROGNOSIS ~ beauty is a thing, not typically truly seen */
+/* http://instagram.com/poetrique */
+
+p {
+	font-family: 'Poppins', sans-serif;
+	text-align: center;
+	color: #4d527a;
+}
+#title {
+	color: #4d527a;
+}
+#moniker {
+	font-style: italic;
+	font-style: bold;
+	text-align: center;
+	font-size: 1.5em;
+}
+#footnote {
+	font-style: italic;
+	font-size: 0.7em;
+}	
+#contact {
+	font-style: bold;
+	text-align: center;
+}
+a:link, a:visited {
+	font-weight: bold;
+	text-decoration: none;
+	color: #4d527a;
+}
