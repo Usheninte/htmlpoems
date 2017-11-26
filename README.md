@@ -41,8 +41,8 @@ never learn
 
 #### the way
 
-that i feel  
-is not so deep  
+that i feel  
+is not so deep  
 not so complex  
 
 truly  
