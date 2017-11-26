@@ -1,6 +1,3 @@
-# htmlpoems
-There Is Rhythm In Code
-
 [READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online)
 
 - - - 
@@ -45,7 +42,7 @@ never learn
 #### the way
 
 that i feel  
-is not so deep  
+isp not so deep  
 not so complex  
 
 truly  
