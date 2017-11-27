@@ -30,6 +30,8 @@ do not sigh
 
 **...**
 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
 - - -
 ![i am nue nue](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511761478/htmlpoems/01-HP_pq1mnq.jpg)
 - - -
