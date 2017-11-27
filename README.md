@@ -51,7 +51,7 @@ heard when i die
 care for  
 a half-broken soul  
 
-[@POETRIQUE](http://instagram.com/poetrique)
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -66,7 +66,7 @@ rhythm to joy
 i might  
 never learn  
 
-[@POETRIQUE](http://instagram.com/poetrique)
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - - 
 
@@ -86,7 +86,7 @@ for no reason
 for a season  
 of spring  
 
-[@POETRIQUE](http://instagram.com/poetrique)
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -103,7 +103,7 @@ instead
 of my heart  
 i need it to think  
 
-[@POETRIQUE](http://instagram.com/poetrique)
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -121,4 +121,4 @@ painting, and explaining
 the pits of my being  
 and broken lofty peaks  
 
-[@POETRIQUE](http://instagram.com/poetrique)
+[&copy; POETRIQUE](http://instagram.com/poetrique)
