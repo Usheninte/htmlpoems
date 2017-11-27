@@ -3,6 +3,37 @@
 - - - 
 - - - 
 
+## do not
+
+- - -
+
+do not look  
+do not see  
+do not feel  
+do not speak  
+
+understand  
+there is no point  
+
+do not love  
+do not hug  
+do not smile  
+do not reach  
+
+understand  
+there is no point  
+
+do not wonder  
+do not ask  
+do not bother  
+do not sigh  
+
+**...**
+
+- - -
+![i am nue nue](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,r_35,w_500/v1511761478/htmlpoems/01-HP_pq1mnq.jpg)
+- - -
+
 ## CONFESSIONS
 
 - - -
