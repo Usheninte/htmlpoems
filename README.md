@@ -12,16 +12,16 @@ do not see
 do not feel  
 do not speak  
 
-understand  
-there is no point  
+_understand_  
+_there is no point_  
 
 do not love  
 do not hug  
 do not smile  
 do not reach  
 
-understand  
-there is no point  
+_understand_  
+_there is no point_  
 
 do not wonder  
 do not ask  
