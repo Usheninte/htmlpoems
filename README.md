@@ -73,7 +73,7 @@ never learn
 #### the way
 
 that i feel  
-isp not so deep  
+is not so deep  
 not so complex  
 
 truly  
