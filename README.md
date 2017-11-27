@@ -31,7 +31,7 @@ do not sigh
 **...**
 
 - - -
-![i am nue nue](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,r_35,w_500/v1511761478/htmlpoems/01-HP_pq1mnq.jpg)
+![i am nue nue](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511761478/htmlpoems/01-HP_pq1mnq.jpg)
 - - -
 
 ## CONFESSIONS
