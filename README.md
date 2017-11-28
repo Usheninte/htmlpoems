@@ -5,6 +5,94 @@
 - - -
 - - -
 
+## question
+
+a stranger asked   
+"are you okay?"   
+
+no friend can stand   
+with me by day   
+
+ask not why i repress my pain   
+leave me this way   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## antihero
+
+- - -
+
+#### batman
+
+i am alone      
+that ought not    
+to be stated    
+
+yet i save    
+those i can    
+from falling    
+
+i am not saint    
+yet still,    
+half-martyred    
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+#### the punisher
+
+guerrilla warrior   
+sweeper of deceit   
+
+nothing poetic   
+breathing crooked   
+pure artistry   
+
+anger is a weapon   
+i know too well   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - - 
+
+#### john constantine
+
+chain smoker   
+my pain is hidden     
+in a box   
+
+demon caller   
+i know my faults   
+
+not worthy of a lover   
+i lie to all   
+leave me be   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - - 
+
+#### catwoman
+
+independent    
+broken    
+independent    
+
+all in turns    
+no pain burns    
+
+walk on edges    
+fly off rooftops    
+all to run away    
+from love
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
 ## bye
 
 true poetry   
