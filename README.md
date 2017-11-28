@@ -17,7 +17,7 @@ want your warmth
 
 true peace  
 they do not  
-want your girth  
+seek your girth  
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
