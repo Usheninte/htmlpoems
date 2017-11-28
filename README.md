@@ -1,4 +1,4 @@
-[READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online)
+[READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online)   
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
 - - -
