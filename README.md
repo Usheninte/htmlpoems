@@ -5,17 +5,17 @@
 
 ## bye
 
-true poetry
-they do not
-feel your truth
+true poetry   
+they do not  
+feel your truth  
 
-true love
-they do not
-want your warmth
+true love  
+they do not  
+want your warmth  
 
-true peace
-they do not
-want your girth
+true peace  
+they do not  
+want your girth  
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
@@ -47,16 +47,16 @@ _lana knows my soul_
 
 ## simple
 
-could love not be
-direct as smoke
+could love not be  
+direct as smoke  
 
-straight as a tree
-other than
-full of glee
+straight as a tree  
+other than  
+full of glee  
 
-why do we
-claim we know
-what we do not
+why do we  
+claim we know  
+what we do not  
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
@@ -64,17 +64,17 @@ what we do not
 
 ## guns and roses
 
-life  
+life    
+_*_     
+love  
+_*_   
+abstinence     
+_*_    
+absence    
 _*_  
-love
-_*_ 
-abstinence  
+emptiness    
 _*_  
-absence  
-_*_
-emptiness  
-_*_
-empathy
+empathy 
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
@@ -84,19 +84,19 @@ empathy
 
 ## lack of
 
-the absence  
-of sleep  
-means not
-insomnia
+the absence    
+of sleep    
+means not  
+insomnia  
 
-the lack
-of love
-means not
-loneliness
+the lack   
+of love  
+means not   
+loneliness  
 
-nothing can
-fill a thing
-that is nothing
+nothing can  
+fill a thing  
+that is nothing  
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
@@ -104,17 +104,17 @@ that is nothing
 
 ## cold poetry
 
-look not  
-into my eyes  
-_i cannot look back_   
+look not    
+into my eyes    
+_i cannot look back_     
 
-look not  
-into my soul  
-_its kind of wack_
+look not    
+into my soul    
+_its kind of wack_  
 
-my poems
-hardly rhyme nowadays
-_now thats a fact_
+my poems  
+hardly rhyme nowadays  
+_now thats a fact_  
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
