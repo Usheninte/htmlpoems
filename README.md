@@ -1,7 +1,124 @@
 [READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online)
 
+- - -
+- - -
+
+## bye
+
+true poetry
+they do not
+feel your truth
+
+true love
+they do not
+want your warmth
+
+true peace
+they do not
+want your girth
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+![singular](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511827448/htmlpoems/03-HP_poetrique.jpg)
+
+- - -
+
+## del ray
+
+_lana knows my soul_  
+
+i guess  
+i think  
+i cannot know  
+
+_lana knows my soul_  
+
+she breathes  
+pure gold  
+yet wants nothing  
+
+_lana knows my soul_  
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## simple
+
+could love not be
+direct as smoke
+
+straight as a tree
+other than
+full of glee
+
+why do we
+claim we know
+what we do not
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## guns and roses
+
+life  
+_*_  
+love
+_*_ 
+abstinence  
+_*_  
+absence  
+_*_
+emptiness  
+_*_
+empathy
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+![b-l-u-e](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511827495/htmlpoems/02-HP_poetrique.jpg)
+- - -
+
+## lack of
+
+the absence  
+of sleep  
+means not
+insomnia
+
+the lack
+of love
+means not
+loneliness
+
+nothing can
+fill a thing
+that is nothing
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
 - - - 
-- - - 
+
+## cold poetry
+
+look not  
+into my eyes  
+_i cannot look back_   
+
+look not  
+into my soul  
+_its kind of wack_
+
+my poems
+hardly rhyme nowadays
+_now thats a fact_
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
 
 ## do not
 
@@ -33,7 +150,7 @@ do not sigh
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
-![i am nue nue](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511761478/htmlpoems/01-HP_pq1mnq.jpg)
+![i am nue nue](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511761478/htmlpoems/01-HP_poetrique.jpg)
 - - -
 
 ## CONFESSIONS
@@ -103,7 +220,7 @@ i think _candide_
 
 instead  
 of my heart  
-i need it to think  
+i need it to feel  
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
