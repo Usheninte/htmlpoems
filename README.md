@@ -5,6 +5,10 @@
 - - -
 - - -
 
+![skin-&-bone](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511933811/htmlpoems/04-HP_poetrique.jpg)
+
+- - -
+
 ## question
 
 a stranger asked   
@@ -34,7 +38,7 @@ yet i save
 those i can    
 from falling    
 
-i am not saint    
+i am no saint    
 yet still,    
 half-martyred    
 
