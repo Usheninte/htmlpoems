@@ -5,6 +5,73 @@
 - - -
 - - -
 
+![hey-namrata](http://#/05-HP.jpg)
+
+- - -
+
+## just because
+
+lets do nothing   
+just because   
+
+life is a game   
+you catch   
+and toss   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## mean
+
+do not like me   
+if you wish   
+that does not matter   
+
+just do not speak   
+behind my back   
+i hear your chatter   
+
+i taste sweet   
+ask your soul   
+i am a honeyed black adder   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## darling
+
+come to me
+
+**_in a dream_**   
+**_smile and dance_**   
+
+leave me be   
+if you can   
+
+**_in a dream_**   
+**_smile and dance_**   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## midnight
+
+god bless   
+my magic yellow pill   
+
+for drowning out   
+the pain surreal   
+
+thank you lov*   
+for being real   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
 ![skin-&-bone](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1511933811/htmlpoems/04-HP_poetrique.jpg)
 
 - - -
