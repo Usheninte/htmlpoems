@@ -43,8 +43,7 @@ do i swim or wade through life
 seek out bitter, endless strife   
 
 neither in truth   
-i drown each day   
-in my own tear   
+i drown each day     
 
 **_in the pool_**   
 **_of my mind's tear_**   
