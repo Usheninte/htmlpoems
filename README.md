@@ -5,6 +5,233 @@
 - - -
 - - -
 
+## make-believe
+
+thoughts imaginary   
+i pull out   
+of my magic black hat   
+with a rabid white rabbit   
+
+there is no   
+saving me   
+from make-believe   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## assay
+
+often, and with care   
+without reflection   
+or a drop of fear   
+
+never ignorant   
+getting goals accomplished   
+evaluate all   
+regardless of where   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+![loyalty](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1512092145/htmlpoems/07-HP_poetrique.jpg)
+
+- - -
+
+## a-levels
+
+i dropped out to focus   
+and study more   
+and mentally soar   
+
+you knock on the door   
+for the encore   
+i fly, for the high   
+
+i never sleep   
+for in the heavens   
+you cannot snore   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## dar es salaam
+
+raised in the city   
+of peace, and chapati   
+
+went to the ocean  
+when i wanted   
+worked on walls      
+white - with graffiti      
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## create, debate
+
+art is argument    
+art is peace   
+
+release, now   
+your next work   
+like it is      
+you last bow     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## in truth
+
+i am nothing    
+just a shell    
+just for show   
+
+dark warm snow   
+am i. Nothing else   
+nothing mo'   
+
+...
+
+mo' money   
+means   
+mo' monkey biz   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## other poets
+
+are better than me   
+simpler, you see   
+free as can be   
+
+with regard to myself,    
+i know   
+- this is catharsis   
+- this has no rhyme
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+![not-easy](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512029156/htmlpoems/06-HP_adawrites_1.jpg)
+[&copy; ADAWRITES](http://instagram.com/adawrites)   
+
+[view ADAWRITES' other works](http://instagram.com/adawrites)
+
+
+- - -
+
+## to my future love
+
+- - -
+
+#### trust
+
+is a seed   
+that does   
+not just grow   
+
+first you sow   
+then you mend   
+
+**_on and on_**   
+**_without end_**   
+
+i will give   
+you will take   
+just do not   
+
+pretend   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+#### desire
+
+come at me always   
+with the heat   
+of pure fire   
+
+never relent   
+in loving   
+and i too   
+will never   
+in adoring   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+#### want me
+
+its not complex   
+truly simple   
+you and me
+
+want and need   
+_not me indeed_   
+
+but the passion   
+you and i   
+know i breed   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+#### reflect
+
+on the way   
+you once did walk   
+before i passed   
+you my cross   
+
+blanched as chalk   
+is my soul   
+with a center   
+full of **melanin**
+
+- - - 
+
+## impatient
+
+i tire   
+of waiting   
+
+of skating   
+on the fence
+
+of relating   
+with pagans   
+
+**_full of pretence_**   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## bitter blunt
+
+you sting   
+and whisper   
+a tale of death   
+
+but im not coughing   
+but im not choking   
+i accept it   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
 ![hey-namrata](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1512007384/htmlpoems/05-HP_poetrique.png)
 
 - - -
