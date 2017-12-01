@@ -114,7 +114,7 @@ free as can be
 with regard to myself,    
 i know   
 - this is catharsis   
-- this has no rhyme
+- this has no rhyme   
 my depth is shallow at best
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
