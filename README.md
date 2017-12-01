@@ -11,43 +11,43 @@
 
 #### for now
 
-the pain is a game
-a two minute race
-without face
-without pace
+the pain is a game   
+a two minute race   
+without face   
+without pace   
 
-its a mental mirage
-that burns from within
-it soothes too, i must confess
+its a mental mirage   
+that burns from within   
+it soothes too, i must confess   
 
-herein lies the truth
-of my pathetic sin
+herein lies the truth   
+of my pathetic sin   
 
 - - -
 
 #### barsman
 
-i burn bars
-not for ectasy
+i burn bars   
+not for ectasy   
 
-but to reclaim
-the key to reality
-my once sober clarity
-my weak hold on vanity
+but to reclaim    
+the key to reality    
+my once sober clarity   
+my weak hold on vanity   
 
 - - -
 
 #### better already
 
-do i swim or wade through life
-seek out bitter, endless strife
+do i swim or wade through life   
+seek out bitter, endless strife   
 
-neither in truth
-i drown each day
-in my own tear
+neither in truth   
+i drown each day   
+in my own tear   
 
-**_in the pool_**
-**_of my mind's tear_**
+**_in the pool_**   
+**_of my mind's tear_**   
 
 - - -
 
