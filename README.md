@@ -200,6 +200,8 @@ is my soul
 with a center   
 full of **melanin**
 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
 - - - 
 
 ## impatient
