@@ -5,6 +5,63 @@
 - - -
 - - -
 
+## last page 
+
+no more stories       
+to tell     
+
+it is unentertaining       
+how often   
+i have fell    
+
+**_one last hurrah_**     
+**_for the trip in the sky_**    
+
+the bravest ones    
+never win    
+
+and surely too    
+those farthest from the truth    
+never lie    
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## soul food
+
+age your ideas       
+finer than wine       
+
+upon your soul     
+feast and dine     
+you are all you require        
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - - 
+
+## cobain
+
+when the   
+time comes   
+
+i will   
+feed my  
+mind   
+
+its proper   
+diet   
+a bullet
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+![gandalf](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1512196010/htmlpoems/08-HP_poetrique.jpg)
+
+- - -
+
 ## what i have to say
 
 - - -
@@ -23,6 +80,8 @@ it soothes too, i must confess
 herein lies the truth   
 of my pathetic sin   
 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
 - - -
 
 #### barsman
@@ -35,6 +94,8 @@ the key to reality
 my once sober clarity   
 my weak hold on vanity   
 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
 - - -
 
 #### better already
@@ -46,7 +107,9 @@ neither in truth
 i drown each day     
 
 **_in the pool_**   
-**_of my mind's tear_**   
+**_of my mind's tear_**  
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -169,6 +232,7 @@ my depth is shallow at best
 - - -
 
 ![not-easy](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512029156/htmlpoems/06-HP_adawrites_1.jpg)
+
 [&copy; ADAWRITES](http://instagram.com/adawrites)   
 
 [view ADAWRITES' other works](http://instagram.com/adawrites)
