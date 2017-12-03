@@ -51,13 +51,13 @@ let me know - **then**
 
 #### chocolates
 
-keep you joy   
+keep you joyful   
 but i   
 have no sweet tooth   
 even if, the first soul   
 i ever brushed was a gem   
 
-smelt upon me   
+melt upon me   
 sigh atop me   
 keep it simple   
 blunt and free   
