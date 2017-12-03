@@ -12,6 +12,78 @@
 - - -
 - - -
 
+## who i need to be 
+
+- - -
+
+#### a man 
+
+first and foremost   
+thus, i need a companion   
+
+no one can truly breathe alone   
+
+teach me to roam    
+across the brightest part   
+of Hades' sky    
+
+so i can be the one for you   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+#### love galore
+
+i can be loyal     
+i need someone   
+to be so for   
+
+leave me when you feel    
+nothing again   
+do not just drift   
+like golden dust, again   
+let me know - **then**   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+#### chocolates
+
+keep you joy   
+but i   
+have no sweet tooth   
+even if, the first soul   
+i ever brushed was a gem   
+
+smelt upon me   
+sigh atop me   
+keep it simple   
+blunt and free   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - - 
+
+#### deaf man words
+
+you might not like   
+my ways, my sayings   
+my thoughts and ideas   
+
+but never doubt my   
+arithmetic rhythm   
+always and forever   
+
+i will prove a deaf man   
+spitting on the sun   
+cold words   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
 ![love-secrets](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1512198576/htmlpoems/09-HP_poetrique.png)
 
 - - -
