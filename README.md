@@ -5,6 +5,8 @@
 <link rel="mask-icon" href="/safari-pinned-tab.svg" color="#722f59">
 <meta name="theme-color" content="#ffffff">
 
+![ampersand-online](http://#/ampersand_poetrique.png)
+
 [READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online)   
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
@@ -12,8 +14,75 @@
 - - -
 - - -
 
-## who i need to be 
+## the show
 
+we are on the waves    
+surfing, but never drowning    
+screaming but never shouting    
+speaking from our souls   
+
+we keep it simple    
+open and unspoken    
+moving agendas,    
+shinying shields, and blades   
+mental precision   
+
+**_the show is more than the mic spit_**   
+**_we pilot the art - this is the cockpit_**   
+
+on the steady   
+clearly ready   
+nothing bloddy   
+dirty logic   
+
+we are the new scientists   
+ancient like kings   
+postmodern relics   
+
+we are the new preachers   
+teaching the soft religion   
+moving like ghosts   
+walking like wolves   
+we are the new magicians   
+
+**_the show is more than the mic spit_**   
+**_we pilot the art - this is the cockpit_**   
+
+we know all our brothers   
+we rock all the borders   
+we are up in the air   
+like bluebirds    
+
+of all the cool faces   
+we make up two-thirds   
+we are aiming for greatness    
+we do what we want to     
+there is nothing holding us back    
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## explain
+
+why can i never
+relay as in ink
+my words, in person - sharper
+
+the faults i feel i have
+i have told them to you
+you should not remember
+
+never bother
+the humble and shy
+are not oft recalled
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+## who i need to be 
+ 
 - - -
 
 #### a man 
