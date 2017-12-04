@@ -5,9 +5,9 @@
 <link rel="mask-icon" href="/safari-pinned-tab.svg" color="#722f59">
 <meta name="theme-color" content="#ffffff">
 
-![ampersand-online](http://#/ampersand_poetrique.png)
+[![ampersand-online](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1510499535/htmlpoems/ampersand_poetrique.png)](http://bit.ly/Ampersand-Online)   
 
-[READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online)   
+[READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online) 
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
@@ -65,19 +65,27 @@ there is nothing holding us back
 
 ## explain
 
-why can i never
-relay as in ink
-my words, in person - sharper
+why can i never    
+relay as in ink   
+my words, in person - sharper   
 
-the faults i feel i have
-i have told them to you
-you should not remember
+the faults i feel i have   
+i have told them to you   
+you should not remember   
 
-never bother
-the humble and shy
-are not oft recalled
+never bother   
+the humble and shy   
+are not oft recalled   
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
+
+- - -
+
+![love](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512371745/htmlpoems/10-HP_adawrites_2.jpg)
+
+[&copy; ADAWRITES](http://instagram.com/adawrites)   
+
+[view ADAWRITES' other works](http://instagram.com/adawrites)
 
 - - -
 
@@ -388,7 +396,6 @@ my depth is shallow at best
 [&copy; ADAWRITES](http://instagram.com/adawrites)   
 
 [view ADAWRITES' other works](http://instagram.com/adawrites)
-
 
 - - -
 
