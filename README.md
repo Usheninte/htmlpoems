@@ -13,7 +13,6 @@
       gtag('js', new Date());
       gtag('config', 'UA-110730594-1');
     </script>
-
 </head>
 
 [![ampersand-online](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1510499535/htmlpoems/ampersand_poetrique.png)](http://bit.ly/Ampersand-Online)   
@@ -23,6 +22,196 @@
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
 - - -
+- - -
+
+## SPACEMAN
+
+i feel nothing   
+i am a star    
+out of place   
+
+not joy, not anger   
+truly not even **_pain_**   
+ 
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - -
+
+## FALLEN
+
+drops of gold  
+out of my heart   
+out of my soul   
+
+i hear the laughter   
+of the angels that do weep   
+i do not blink   
+i can not sleep   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - - 
+
+## 2 SHOTS
+
+down from on high   
+shot like a fool   
+into the ground   
+
+went back for   
+more pain   
+hurt again   
+
+take this not   
+for weakkness   
+i remain a titan   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - -
+
+![collage](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:ukulele,q_auto:best,w_500/v1512801064/htmlpoems/12-HP_poetrique.jpg)
+
+- - -
+
+## bae book
+
+- - -
+
+#### SNAP BOY
+
+he took my picture   
+i am after    
+his girl   
+
+i will get her   
+she spins on her toes   
+
+him a snap boy   
+me a bad man   
+my mind is no safe toy   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - -
+
+#### ANTS IN A CODA BOTTLE
+
+lick up   
+all the joy   
+you sober fighter   
+
+do not hesitate   
+take what is left   
+   
+**do your best**   
+
+pass the test   
+of sweetness   
+and sobriety   
+get high on your soul   
+
+**do your best**   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - - 
+
+#### RATATATA
+
+madness   
+is a rhythm   
+sadness: is a game   
+
+my soul   
+is free and complex   
+
+_yet still intact_   
+
+**_ratatata_**   
+
+i speak   
+in the language   
+of pain sweet   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - -
+
+#### GUTTER
+
+effortlessly, i cut   
+through souls   
+like they are butter   
+   
+**_yet still, though_**   
+**_my heart is a gutter_**   
+
+i breathe in gasps   
+i talk in riddles   
+so my muse believes me   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)  
+
+- - -
+
+#### ALPHA
+
+a, b, c   
+1, 2, 3   
+i am a king   
+and a knave indeed   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - -  
+
+#### RELUNCTANT      
+
+an adviser she   
+claims to be, but she knows   
+she is more with me   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - -
+
+#### AIM
+ 
+she wore a dress   
+colder than reality   
+
+closer to sanity   
+is she, than i   
+
+for her i aim to fly   
+but i have no wings   
+thus i must fall   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)    
+
+- - -
+
+## COLOSSEUM
+
+exposed to the sun   
+naked like a maiden   
+or a mind unborn   
+
+you were a palace of madness   
+you are nothing but a ruin   
+but a dream now   
+
+was it sinful   
+that i did not come so often   
+to worship, before you fell?   
+
+[&copy; POETRIQUE](http://instagram.com/poetrique)   
+
+- - -
+
+![htmlpoems](http://res.cloudinary.com/poetrique/image/upload/c_scale,e_art:linen,q_auto:best,w_500/v1512800578/htmlpoems/11-HP_poetrique.jpg.jpg)
+
 - - -
 
 ## the show
