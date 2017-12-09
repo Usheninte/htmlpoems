@@ -24,7 +24,7 @@
 - - -
 - - -
 
-## SPACEMAN
+## spaceman
 
 i feel nothing   
 i am a star    
@@ -37,7 +37,7 @@ truly not even **_pain_**
 
 - - -
 
-## FALLEN
+## fallen
 
 drops of gold  
 out of my heart   
@@ -52,7 +52,7 @@ i can not sleep
 
 - - - 
 
-## 2 SHOTS
+## 2 shots
 
 down from on high   
 shot like a fool   
