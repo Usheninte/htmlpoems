@@ -78,7 +78,7 @@ i remain a titan
 
 - - -
 
-#### SNAP BOY
+#### snap boy
 
 he took my picture   
 i am after    
@@ -95,7 +95,7 @@ my mind is no safe toy
 
 - - -
 
-#### ANTS IN A CODA BOTTLE
+#### ants in a coda bottle
 
 lick up   
 all the joy   
@@ -117,7 +117,7 @@ get high on your soul
 
 - - - 
 
-#### RATATATA
+#### ratatata
 
 madness   
 is a rhythm   
@@ -138,7 +138,7 @@ of pain sweet
 
 - - -
 
-#### GUTTER
+#### gutter
 
 effortlessly, i cut   
 through souls   
@@ -155,7 +155,7 @@ so my muse believes me
 
 - - -
 
-#### ALPHA
+#### alpha
 
 a, b, c   
 1, 2, 3   
@@ -166,7 +166,7 @@ and a knave indeed
 
 - - -  
 
-#### RELUNCTANT      
+#### relunctant      
 
 an adviser she   
 claims to be, but she knows   
@@ -176,7 +176,7 @@ she is more with me
 
 - - -
 
-#### AIM
+#### aim
  
 she wore a dress   
 colder than reality   
@@ -192,7 +192,7 @@ thus i must fall
 
 - - -
 
-## COLOSSEUM
+## colosseum
 
 exposed to the sun   
 naked like a maiden   
