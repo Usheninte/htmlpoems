@@ -15,7 +15,7 @@
     </script>
 </head>
 
-[READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online) 
+[read AMPERSAND online](http://bit.ly/Ampersand-Online) 
 
 [![All Dark Hurt Darling](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512928695/a-d-h-d_poetrique.png)](bit.ly/adhd-poetrique)
 
@@ -77,6 +77,8 @@ Noir and full of storms
 - - - 
 
 [![ampersand-online](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1510499535/htmlpoems/ampersand_poetrique.png)](http://bit.ly/Ampersand-Online)
+
+[read AMPERSAND online](http://bit.ly/Ampersand-Online) 
 
 - - -
 
