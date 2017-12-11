@@ -19,7 +19,7 @@
 
 [![All Dark Hurt Darling](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512928695/a-d-h-d_poetrique.png)](bit.ly/adhd-poetrique)
 
-[read The ADHD Chapbook](bit.ly/adhd-poetrique)
+[read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
