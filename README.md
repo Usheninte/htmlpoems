@@ -15,13 +15,67 @@
     </script>
 </head>
 
-[![ampersand-online](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1510499535/htmlpoems/ampersand_poetrique.png)](http://bit.ly/Ampersand-Online)   
-
 [READ AMPERSAND ONLINE](http://bit.ly/Ampersand-Online) 
+
+[![All Dark Hurt Darling](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512928695/a-d-h-d_poetrique.png)](bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
 - - -
+
+## premium 
+
+- - -
+
+#### fired 
+
+i Need No muse    
+i have dropped every ruse     
+i am     
+          plain and cold     
+i am     
+          mad and bold     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - - 
+
+#### the blessed
+
+come across love    
+the holy    
+draw Near to god     
+
+Nothing is to me       
+a source of joy    
+permaNeNt     
+or vaiN    
+
+from Needless mirth    
+arouNd me, refraiN     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - - 
+
+#### capitalized N
+
+for Ninte    
+for kNowledge    
+and for     
+my saNity    
+
+i am an aviaN    
+visioNary    
+flying across a cloud    
+Noir and full of storms    
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - - 
+
+[![ampersand-online](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1510499535/htmlpoems/ampersand_poetrique.png)](http://bit.ly/Ampersand-Online)
+
 - - -
 
 ## spaceman
