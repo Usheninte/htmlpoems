@@ -25,6 +25,93 @@
 
 - - -
 
+## emotions
+
+- - -
+
+#### my reality
+
+it takes an insect     
+in my eye to make me _weep_      
+
+and a prescribed pill
+to make me **sleep**
+
+i gamble with machinations     
+foster calculations     
+just so, i do not feel like **_sheep_**
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+#### queen
+
+i knew her for half a second    
+that was enough
+she is the last    
+in a recent rapid succession
+
+to ignore my love     
+and my soul rebuff
+
+she had a     
+rapid fire spirit     
+bright as the sun, was she ...     
+she was my new religion     
+i stood at her pulpit     
+
+**_now i know_**     
+**_i can never serve_**     
+**_the god king of love_**     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+#### nerd for life
+
+i have used up     
+two blue ink pens     
+during these exams     
+
+of life: reality tutors me
+i obey my teacher alone
+i cannot stop
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+#### nothing changes
+
+i made my lips sweet     
+for a _convo_ that never held     
+
+for a spluttering sparrow     
+of a bird     
+to become in a triangle     
+an unwilling third     
+
+i still cannot share my love     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+#### good night
+
+nothing can improve     
+for a star-crossed poet     
+
+i am fuzzy inside     
+but never show it     
+my pain must turn to profit     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
 ## premium 
 
 - - -
