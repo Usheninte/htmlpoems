@@ -75,9 +75,9 @@ i have used up
 two blue ink pens     
 during these exams     
 
-of life: reality tutors me
-i obey my teacher alone
-i cannot stop
+of life: reality tutors me     
+i obey my teacher alone     
+i cannot stop      
 
 [&copy; POETRIQUE](http://instagram.com/poetrique) 
 
