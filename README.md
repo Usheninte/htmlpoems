@@ -48,7 +48,7 @@ just so, i do not feel like **_sheep_**
 #### queen
 
 i knew her for half a second    
-that was enough
+that was enough     
 she is the last    
 in a recent rapid succession
 
