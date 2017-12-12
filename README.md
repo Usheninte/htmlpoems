@@ -33,10 +33,10 @@
 
 i Need No muse    
 i have dropped every ruse     
+i am 
+... ... plaiN aNd cold     
 i am     
-          plain and cold     
-i am     
-          mad and bold     
+... ... mad aNd bold     
 
 [&copy; POETRIQUE](http://instagram.com/poetrique) 
 
@@ -69,8 +69,8 @@ my saNity
 
 i am an aviaN    
 visioNary    
-flying across a cloud    
-Noir and full of storms    
+flyiNg across a cloud    
+Noir aNd full of storms    
 
 [&copy; POETRIQUE](http://instagram.com/poetrique) 
 
