@@ -25,6 +25,91 @@
 
 - - -
 
+## f*ck it all
+
+let me down     
+let me fall     
+taste the dust     
+i will never call     
+out for help     
+not anymore     
+
+i have waited too long     
+at love's door     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+## ugly duckling
+
+i am kin to none     
+in truth, in fact     
+
+my species have laughed     
+when i tried to look back     
+leave me in my misery      
+
+i am not dark     
+_just the opposite of white_     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+## wolf abuse
+
+puppy dog love     
+turns to wolf abuse     
+
+come not to me     
+when he does refuse     
+
+**nothing is ever worth, feeling anything**     
+
+perhaps i was too cocky     
+and the lord thus decided     
+to shock me     
+
+**nothing is ever worth, feeling anything**     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+## nostalgia
+
+i miss the former days     
+when life passed in a daze     
+
+and i knew never time     
+nor place     
+
+just after i fell     
+like a dark angel     
+falselly accused     
+
+from grace     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+## expletive
+
+bullsh*t they try     
+to feed me on the steady     
+
+for the new god     
+no one can be ready     
+
+my manner is bloody     
+ruddy and cold     
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
 ## emotions
 
 - - -
