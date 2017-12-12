@@ -33,7 +33,7 @@
 
 i Need No muse    
 i have dropped every ruse     
-i am 
+i am    
 ... ... plaiN aNd cold     
 i am     
 ... ... mad aNd bold     
