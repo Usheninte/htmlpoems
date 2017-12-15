@@ -25,6 +25,30 @@
 
 - - -
 
+## forgotten
+
+God forgot to make a mate for me
+he or she decided
+i do not deserve companionship
+
+no love sticks
+my heart is bark
+yet i have been burdened
+with a soul of sap
+
+of honey golden
+running impure
+able to see love
+but never sure
+
+if i was meant to be happy
+then this numbness in me
+ought not to be a reality
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
 ## f*ck it all
 
 let me down     
