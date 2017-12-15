@@ -31,15 +31,15 @@
 
 #### denied
 
-a chance at love by the holy
-told that i was nothing
-by the ugly and the lowly
-and i have believed them all
+a chance at love by the holy     
+told that i was nothing     
+by the ugly and the lowly     
+and i have believed them all     
 
-i ought now to bolden up
-and firmly stand tall
-i shall explain my soul no more
-i shut now the last door
+i ought now to bolden up      
+and firmly stand tall     
+i shall explain my soul no more     
+i shut now the last door     
 
 [&copy; POETRIQUE](http://instagram.com/poetrique) 
 
@@ -47,20 +47,20 @@ i shut now the last door
 
 #### gifted
 
-believe you will never
-come across a star like me
-even i do not know
-my full glow
+believe you will never     
+come across a star like me     
+even i do not know     
+my full glow     
 
-i need to press it harder
-into the furnace of life
-hit it on the anvil
-of madness and strife
+i need to press it harder     
+into the furnace of life     
+hit it on the anvil     
+of madness and strife     
 
-i am gifted
-twisted and blistered
-a purple diamond
-i will earn a galaxy
+i am gifted     
+twisted and blistered     
+a purple diamond     
+i will earn a galaxy     
 
 [&copy; POETRIQUE](http://instagram.com/poetrique) 
 
