@@ -25,25 +25,63 @@
 
 - - -
 
-## forgotten
+## a boy named ransom
 
-God forgot to make a mate for me
-he or she decided
-i do not deserve companionship
+- - - 
 
-no love sticks
-my heart is bark
-yet i have been burdened
-with a soul of sap
+#### denied
 
-of honey golden
-running impure
-able to see love
-but never sure
+a chance at love by the holy
+told that i was nothing
+by the ugly and the lowly
+and i have believed them all
 
-if i was meant to be happy
-then this numbness in me
-ought not to be a reality
+i ought now to bolden up
+and firmly stand tall
+i shall explain my soul no more
+i shut now the last door
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+#### gifted
+
+believe you will never
+come across a star like me
+even i do not know
+my full glow
+
+i need to press it harder
+into the furnace of life
+hit it on the anvil
+of madness and strife
+
+i am gifted
+twisted and blistered
+a purple diamond
+i will earn a galaxy
+
+[&copy; POETRIQUE](http://instagram.com/poetrique) 
+
+- - -
+
+#### forgotten
+
+God forgot to make a mate for me     
+he or she decided      
+i do not deserve companionship     
+
+no love sticks, my heart is bark     
+yet i have been burdened     
+with a soul of sap      
+
+of honey golden running impure      
+able to see love but never sure     
+
+if i was meant to be happy     
+then this numbness in me     
+ought not to be a reality    
 
 [&copy; POETRIQUE](http://instagram.com/poetrique) 
 
