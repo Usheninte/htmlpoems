@@ -30,7 +30,7 @@
 #### i am numb
 
 i am cold now       
-from deeping my soul        	
+from dipping my soul        	
 in lofty icy depths         
 
 i catch swift breaths       
@@ -52,8 +52,8 @@ than a blunt yet sharpened blade
 rare as the ancient jade        
 silver when it sold the son of god          
 
-... _i but banter_
-i am but semi-righteous being
+... _i but banter_      
+i am but semi-righteous being       
 
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
