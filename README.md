@@ -39,7 +39,7 @@ as i slip
 ever deeper into        
 holy perdition      
 
-=
+_       
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 1-27-018    
@@ -57,7 +57,7 @@ silver when it sold the son of god
 ... _i but banter_      
 i am but a semi-righteous being       
 
-=
+_       
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 1-27-018    
@@ -74,7 +74,7 @@ first, which you do not
 **lol**         
 i am not your boy       
 
-=
+_       
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 1-27-018    
