@@ -17,11 +17,66 @@
 
 [read AMPERSAND online](http://bit.ly/Ampersand-Online) 
 
-[![All Dark Hurt Darling](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512928695/a-d-h-d_poetrique.png)](http://bit.ly/adhd-poetrique)
-
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
+
+- - -
+
+## no sleep
+
+- - -
+
+#### i am numb
+
+i am cold now       
+from deeping my soul        	
+in lofty icy depths         
+
+i catch swift breaths       
+of redemption       
+as i slip       
+ever deeper into        
+holy perdition      
+
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+
+- - -
+
+#### who i am in truth
+
+is no more than a shade         
+than a blunt yet sharpened blade        
+
+rare as the ancient jade        
+silver when it sold the son of god          
+
+... _i but banter_
+i am but semi-righteous being
+
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+
+- - -
+
+#### whatevz
+
+you cannot control me       
+you would       
+have to understand      
+first, which you do not     
+
+**lol**         
+i am not your boy       
+
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+
+- - -
+
+[![All Dark Hurt Darling](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512928695/a-d-h-d_poetrique.png)](http://bit.ly/adhd-poetrique)
+
 
 - - -
 
