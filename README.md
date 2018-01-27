@@ -41,6 +41,7 @@ holy perdition
 
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+1-27-018    
 
 - - -
 
@@ -53,10 +54,11 @@ rare as the ancient jade
 silver when it sold the son of god          
 
 ... _i but banter_      
-i am but semi-righteous being       
+i am but a semi-righteous being       
 
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+1-27-018    
 
 - - -
 
@@ -72,6 +74,7 @@ i am not your boy
 
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+1-27-018    
 
 - - -
 
