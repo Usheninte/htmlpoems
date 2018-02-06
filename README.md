@@ -23,6 +23,269 @@
 
 - - -
 
+## goth king
+
+- - -
+
+#### superficious
+
+do you think      
+my black nails are      
+simply superficious     
+
+my dark soul        
+is simply maleficient       
+**...** i am something      
+more than, just magnificent     
+
+_even my girl knows i am far from normal_       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-05-018    
+
+- - - 
+
+#### mad lullabies
+
+i **do not** sing often     
+i have **ever** fewer true friends     
+than the digits on any human hand     
+i understand but do not **fear the**      
+**darkness**, you claim maddens you ...     
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-05-018    
+
+- - -
+
+#### clipped wings
+
+i am far from icarus      
+i am far from heaven sent     
+down to darkness, i seem bent       
+
+on falling headfirst        
+i must paint this lest i repent       
+carve a rose in ink on my chest       
+
+maybe then the world will know        
+no every savior need be a saint       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-05-018    
+
+- - -
+
+#### never repeat
+
+speak twice no more     
+third time, is the charm     
+i just fell once more     
+felt the thirst for the nicotine      
+**_damn_** : few things hurt so       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-05-018    
+
+- - -
+
+#### more than man
+
+i fall not to repeat my sin     
+i bathe in Hades' river     
+to rinse my mind clean      
+
+the calmness of Olympus     
+seems to me to be but     
+ordered chaos     
+
+how can gods sit upon     
+a mound of stone      
+and call it home      
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-05-018    
+
+- - -
+
+#### rare evening dove
+
+few are truly honest      
+fewer, yet still calm     
+
+most are aged yet young within      
+my dove is young, yet aged without      
+
+smart as the anvil near Vulcan's flame      
+she wears her thoughts with no drop of shame      
+
+if i am the heat of an ancient desert     
+she is the smoothest singing palm       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-05-018    
+
+- - -
+
+## nicotine sanity
+
+a cigarette a     
+day, keeps the doctor away      
+... or so i dare say        
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+01-28-018    
+
+- - -
+
+## tell them
+
+_words of_ warmth     
+if it will make them      
+pause and believe     
+
+_words of_ war ...      
+if it will make them      
+rise and acheive      
+
+if it will make them      
+act and perceive      
+**_words of_** warning      
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+01-28-018    
+
+- - - 
+
+## choir noir
+
+- - -
+
+#### the anthem
+
+it hums in silence      
+should i ignore it      
+
+or let it sink it     
+it mocks me, and      
+at my pain, laughs softly     
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+01-28-018    
+
+- - -
+
+#### hungry revolutionary
+
+he wanders on the field      
+for the bread of peace      
+
+walking into      
+the **_enemy's den_**     
+
+unafraid of hell      
+for from a heaven, he fell     
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+01-28-018    
+
+- - -
+
+#### les jacques
+
+like in a tale      
+of two cities     
+the spirit      
+worships two deities    
+
+1. one of **patience**      
+2. one of **angst**     
+
+against and for     
+the soul they fight     
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+01-28-018    
+
+- - -
+
+#### dumb lead
+
+the music of reality      
+rarely parts my lips      
+
+i wander 'cross ancient galaxies      
+collecting teardrops of skylight      
+will it all amount to _aught_     
+
+**i am the dumb lead**      
+**in an opera, take heed**      
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+01-28-018    
+
+- - -
+
+#### caramel blunders
+
+and melanin wonders     
+envelope my     
+youthful soul     
+
+in parts, in whole      
+i smile and **thole**     
+
+_excuse_ the grammar
+_my heart_ does stammer
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+01-28-018    
+
+- - -
+
+## remembering normal
+
+the absence of thought      
+is not a thing in itself      
+
+blink mentally      
+remember normality      
+it is a gift for the mundanity      
+you offered to bleed gold     
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+01-27-018    
+
+- - -
+
 ## no sleep
 
 - - -
@@ -42,7 +305,7 @@ holy perdition
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
-1-27-018    
+01-27-018    
 
 - - -
 
@@ -60,7 +323,7 @@ i am but a semi-righteous being
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
-1-27-018    
+01-27-018    
 
 - - -
 
@@ -77,12 +340,11 @@ i am not your boy
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
-1-27-018    
+01-27-018    
 
 - - -
 
 [![All Dark Hurt Darling](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1512928695/a-d-h-d_poetrique.png)](http://bit.ly/adhd-poetrique)
-
 
 - - -
 
