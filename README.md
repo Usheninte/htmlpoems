@@ -15,11 +15,39 @@
     </script>
 </head>
 
+[download NEONBULLSH_T](https://lcuofficial.com.ng/entertainment/download/neonbullsh_t-by-poetrique/#)
+![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
+
 [read AMPERSAND online](http://bit.ly/Ampersand-Online) 
 
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
+
+- - -
+
+## SILLY THOUGHTS 
+
+Sometimes I feel invisible or like      
+I exist only in someone's subconscious.       
+
+Like, what if I'm not real        
+I mean, what if I'm just a part         
+of someone's reality.       
+Or what if this is just         
+someone's nightmare, Because        
+I'm definitely not living a dream.        
+
+I mean, I know for sure         
+there could be infinite alternate realities        
+to every reality.       
+
+My reality isn't convincing enough.       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Itz_Gana](https://medium.com/@Itz_Gana)       
+02-07-018    
 
 - - -
 
