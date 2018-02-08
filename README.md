@@ -28,17 +28,17 @@
 
 ## moth light
 
-pray tell me **stories**
-pray tell me **_tales_**
-beauties of ages
+pray tell me **stories**        
+pray tell me **_tales_**        
+beauties of ages        
 
-**glorious and gone**
+**glorious and gone**       
 
-curse all my **worries**
-curse all my **_wails_**
-pain, though once pent up
+curse all my **worries**        
+curse all my **_wails_**        
+pain, though once pent up       
 
-**glorious and gone**
+**glorious and gone**       
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
