@@ -26,6 +26,27 @@
 
 - - -
 
+## moth light
+
+pray tell me **stories**
+pray tell me **_tales_**
+beauties of ages
+
+**glorious and gone**
+
+curse all my **worries**
+curse all my **_wails_**
+pain, though once pent up
+
+**glorious and gone**
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-08-018    
+
+- - -
+
 ## SILLY THOUGHTS 
 
 Sometimes I feel invisible or like      
