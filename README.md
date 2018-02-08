@@ -18,7 +18,7 @@
 [download NEONBULLSH_T](https://lcuofficial.com.ng/entertainment/download/neonbullsh_t-by-poetrique/#)
 ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
 
-[read AMPERSAND online](http://bit.ly/Ampersand-Online) 
+[read AMPERSAND online](http://bit.ly/ampersand-poetrique) 
 
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
