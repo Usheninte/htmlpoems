@@ -26,6 +26,60 @@
 
 - - -
 
+## red
+
+- - -
+
+#### tainted heart
+
+they are the angels       
+and i the demon       
+
+the blighted son of Helen       
+even when good        
+not hard to leave
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-09-018    
+
+- - -
+
+#### burnt rose
+
+she said goodbye        
+with a wry smile       
+
+i was not bad enough        
+to tear her from her        
+spirit guides       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-09-018    
+
+- - -
+
+#### puff puff pass
+
+away your pain        
+do it today       
+i have        
+
+'cause even if        
+you give your all       
+every good is       
+bound to fall       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-09-018    
+
+- - -
+
 ## moth light
 
 pray tell me **stories**        
