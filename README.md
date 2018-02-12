@@ -26,6 +26,31 @@
 
 - - -
 
+## black panther
+
+man be an urban warrior     
+code on the cloud       
+in the internet corridor      
+
+github [@Usheninte](http://github.com/Usheninte)
+cause i am the new Kunta Kinte
+a negus like **Selassie**
+
+the **_green_** in my heart
+the **_gold_** around my soul
+the **_black_** be melanin
+
+... the hue of blessed sin
+... 'pon my pagan skin
+not every apple gets to be a tart
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-11-018    
+
+- - -
+
 ## red
 
 - - -
