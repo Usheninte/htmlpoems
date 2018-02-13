@@ -26,6 +26,27 @@
 
 - - -
 
+## dirty high
+
+almost fell off     
+the last cloud      
+heaven loaned me      
+
+my sin was bold       
+my sorrow deep        
+i croaked to cough        
+and gasped to weep        
+
+**_my weakness_**       
+**_is why she left me_**
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-11-018    
+
+- - -
+
 ## black panther
 
 man be an urban warrior     
