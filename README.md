@@ -26,6 +26,51 @@
 
 - - -
 
+## pointless
+
+do not fight        
+the demons that you see       
+the pain within your soul       
+your sorrows turned to joy      
+the world is just too cold        
+
+do not fight        
+the love you know to doubt        
+whisper and then shout        
+the gods are too asleep       
+to help you out         
+
+do not fight        
+who you know you are        
+you could be a star       
+or a blackhole        
+either way, you are in the sky        
+
+do not fight        
+what helps you remember       
+you are made of gold        
+who cares if no one cares        
+wipe away your tears        
+
+do not fight        
+the colours on your soul        
+the red that proves you are bloody        
+the black that is your mind       
+the green that is your flag       
+
+do not fight        
+the pointlessness of life       
+there is no rhythm to reality       
+no one will sing your song        
+till you claim it is your anthem        
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-16-018    
+
+- - -
+
 ## dirty high
 
 almost fell off     
