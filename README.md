@@ -39,7 +39,7 @@ why should i
 i am too weak to cry       
 how could i       
 
-i seek gold in mine of coal       
+i seek gold in mines of coal       
 i heal, then rip apart my soul      
 
 poetic i would claim, i be        
@@ -64,7 +64,7 @@ yay, any
 but i fall for i am weak        
 i beg when i should preach        
 stutter when i could teach        
-the blind of hell's true peak       
+the blind, of hell's true peak       
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
@@ -102,7 +102,7 @@ who can see ...
 i fall into the darkness of sin         
 yet feel godly        
 is there a cure for humanity        
-let my drink it,        
+let me drink it,        
 and fall sound asleep ...       
 
 _       
