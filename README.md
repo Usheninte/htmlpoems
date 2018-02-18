@@ -1,4 +1,7 @@
 <head>
+    <!-- Emojis -->
+    <link href="https://afeld.github.io/emoji-css/emoji.css" rel="stylesheet">
+    <!-- Favicon -->
     <link rel="apple-touch-icon" sizes="180x180" href="/apple-touch-icon.png">
     <link rel="icon" type="image/png" sizes="32x32" href="/favicon-32x32.png">
     <link rel="icon" type="image/png" sizes="16x16" href="/favicon-16x16.png">
@@ -15,7 +18,6 @@
     </script>
 </head>
 
-[download NEONBULLSH_T](https://lcuofficial.com.ng/entertainment/download/neonbullsh_t-by-poetrique/#)
 ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
 
 [read AMPERSAND online](http://bit.ly/ampersand-poetrique) 
@@ -23,6 +25,97 @@
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
+
+- - -
+
+## grinning sinner
+
+- - -
+
+#### rare mirth
+
+i hardly laugh      
+why should i      
+i am too weak to cry       
+how could i       
+
+i seek gold in mine of coal       
+i heal, then rip apart my soul      
+
+poetic i would claim, i be        
+when in truth       
+i am a prophet      
+peddling vanity       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-18-018    
+
+- - -
+
+#### beggar piper
+
+i hold a gift     
+nay, many       
+i could have all      
+yay, any        
+
+but i fall for i am weak        
+i beg when i should preach        
+stutter when i could teach        
+the blind of hell's true peak       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-18-018    
+
+- - -
+
+#### the silent path
+
+should have been more       
+i seek joy's true door      
+pain, the heavens pour        
+on my heart's very floor      
+
+no one understands        
+that is the girdle        
+of my confusion,         
+the girth of my delusion        
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-18-018    
+
+- - -
+
+#### wakanda
+
+am i a black panther        
+is there anything royal about me        
+all the tanzanite in my soul        
+who can see ...       
+
+i fall into the darkness of sin         
+yet feel godly        
+is there a cure for humanity        
+let my drink it,        
+and fall sound asleep ...       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-18-018    
+
+- - -
+
+![mambo-11x](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1518956052/htmlpoems/mambo/mambo-11x.jpg)
+[@ POETRIQUE](http://instagram.com/poetrique)      
+&copy; mambo <i class="em em-candy"></i>        
+02-18-018    
 
 - - -
 
