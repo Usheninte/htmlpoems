@@ -18,6 +18,8 @@
     </script>
 </head>
 
+[download NEONBULLSH_T](http://bit.ly/NEONBULLSH_T---poetrique)
+
 ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
 
 [read AMPERSAND online](http://bit.ly/ampersand-poetrique) 
@@ -25,6 +27,22 @@
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
+
+- - -
+
+## save me
+
+no one at all       
+i desire nothing now      
+but to bask     
+in the silence of my sin      
+what say you      
+will you come too ...       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-19-018    
 
 - - -
 
