@@ -30,22 +30,6 @@
 
 - - -
 
-## save me
-
-no one at all       
-i desire nothing now      
-but to bask     
-in the silence of my sin      
-what say you      
-will you come too ...       
-
-_       
-[@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
-02-19-018    
-
-- - -
-
 ## fool no more
 
 i am a fool no more         
@@ -74,6 +58,24 @@ _
 - - -
 
 ![mambo-10x](http://res.cloudinary.com/poetrique/image/upload/v1519374067/htmlpoems/mambo/mambo-10x.jpg)
+
+- - -
+
+## save me
+
+no one at all       
+i desire nothing now      
+but to bask     
+in the silence of my sin      
+what say you      
+will you come too ...       
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-19-018    
+
+- - -
 
 ## grinning sinner
 
