@@ -46,6 +46,33 @@ _
 
 - - -
 
+## fool no more
+
+i am a fool no more         
+life is cool no more        
+i stare at reality        
+angry and calm        
+
+i count my sins       
+they climb up to the stars.       
+nothing soothes       
+no one can choose       
+the darkness of their soul        
+
+momma wants me to be holy       
+poppa just wants me to be         
+yet he is never around me       
+
+there is no one to ease       
+i seek no longer to please        
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-18-018    
+
+![mambo-10x](http://res.cloudinary.com/poetrique/image/upload/v1519374067/htmlpoems/mambo/mambo-10x.jpg)
+
 ## grinning sinner
 
 - - -
