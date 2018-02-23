@@ -53,11 +53,14 @@ i seek no longer to please
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
-02-18-018    
+02-23-018    
 
 - - -
 
 ![mambo-10x](http://res.cloudinary.com/poetrique/image/upload/v1519374067/htmlpoems/mambo/mambo-10x.jpg)
+[@ POETRIQUE](http://instagram.com/poetrique)      
+&copy; mambo <i class="em em-candy"></i>        
+02-23-018    
 
 - - -
 
