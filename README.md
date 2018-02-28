@@ -29,7 +29,6 @@
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
 - - -
-<div id="five-simple-minds">
 
 ## five simple minds
 
@@ -148,7 +147,6 @@ _
 [&copy; HUNTER BORN ](http://www.instagram.com/hunterborn_/)       
 02-28-018    
 
-</div>
 - - -
 
 ## fool no more
