@@ -87,7 +87,7 @@ _
 
 ![mambo-9x](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1519374067/htmlpoems/mambo/mambo-09x.jpg)
 [@ POETRIQUE](http://instagram.com/poetrique)      
-&copy; mambo <i class="em em-candy"></i>        
+[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i>        
 02-28-018    
 
 - - -
@@ -180,7 +180,7 @@ _
 
 ![mambo-10x](http://res.cloudinary.com/poetrique/image/upload/v1519374067/htmlpoems/mambo/mambo-10x.jpg)
 [@ POETRIQUE](http://instagram.com/poetrique)      
-&copy; mambo <i class="em em-candy"></i>        
+[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i>        
 02-23-018    
 
 - - -
@@ -287,7 +287,7 @@ _
 
 ![mambo-11x](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1518956052/htmlpoems/mambo/mambo-11x.jpg)
 [@ POETRIQUE](http://instagram.com/poetrique)      
-&copy; mambo <i class="em em-candy"></i>        
+[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i>        
 02-18-018    
 
 - - -
