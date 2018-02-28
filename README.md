@@ -29,6 +29,127 @@
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
 - - -
+<div id="five-simple-minds">
+
+## five simple minds
+
+- - -
+
+#### dark web
+
+what is life, what is love          
+tell me if you know         
+what's a crow, what's a dove            
+tell me if you know         
+
+the way a beat does         	
+wrap itself around a soul, if you know          	
+tell me if you know         	
+
+all we can ever do,         
+is ride low         	
+there is no black         
+son of god, no dark apostle         	
+
+but i hold it not against any religion	       			
+you see, its all supertition            
+
+**_what if god lives in the internet_**         	
+**_that is heaven's best bet_**         
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-28-018    
+
+- - -
+
+#### soul
+
+creatures of the darkness,        
+* they feed on the darkness,        
+
+that lurks in our soul        
+* pressuring our misery         
+  to build their bones        
+* destroying our walls,         
+  and stealing the stones       
+
+so we're lost in the ruins,         
+of our newly corrupted soul.        
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Itz_Gana](https://medium.com/@Itz_Gana)       
+02-28-018    
+
+- - -
+
+![mambo-9x](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1519374067/htmlpoems/mambo/mambo-09x.jpg)
+[@ POETRIQUE](http://instagram.com/poetrique)      
+&copy; mambo <i class="em em-candy"></i>        
+02-28-018    
+
+- - -
+
+#### one day
+
+Maybe one day life        
+won't be so complicated,        
+Maybe one day we'll shed        
+all the insecurities        
+
+that have grown on us and have         
+souls that are pure and naked,        
+Maybe one day our innocence we'll regain,       
+When that time comes we will be children again        
+
+We'll be free to cast our worries aside,        
+Forget our problems and throw away        
+all the sorrows we have to hide,        
+Maybe one day we'll be free to soar         
+through life like birds in the sky,       
+
+And maybe one day         
+pigs will grow wings        
+and learn how to fly        
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; JUNGGLE GEORGE ](http://www.instagram.com/jungglegeorge/)       
+02-28-018    
+
+- - -
+
+#### prince turned king
+
+I remain hidden in fluctuating        
+shades of grey and black        
+
+Horrified by the slaughter of my people       
+Horrified by the slaughter of my kind       
+
+I remain hidden for fear of my demise         
+And with pain I watch as my father is also        
+Slain       
+
+The crown falls from atop his head        
+immediately I'm sure he is dead         
+Cause the African holds on to the crown till death        
+
+Still in motion the crown         
+finds my hiding place and         
+stops it's movement at my feet        
+
+I was a prince but now I am king        
+
+_       
+[@ POETRIQUE](http://instagram.com/poetrique)      
+[&copy; HUNTER BORN ](http://www.instagram.com/hunterborn_/)       
+02-28-018    
+
+</div>
+- - -
 
 ## fool no more
 
