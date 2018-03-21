@@ -20,7 +20,7 @@
 
 [read CRIMSOM SCARRED](http://bit.ly/READ_crimson-scarred)
 
-![CRIMSON SCARRED cover]()
+![CRIMSON SCARRED cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1521599027/crimson-scarred/crimson_scarred_COVER.jpg)
 
 [download NEONBULLSH_T](http://bit.ly/NEONBULLSH_T---poetrique)
 
