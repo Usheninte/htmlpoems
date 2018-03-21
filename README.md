@@ -30,6 +30,27 @@
 
 - - -
 
+## achy breaky heart
+
+i know why girls      
+think i am rare     
+but common      
+
+it is cause     
+i drag my clouds      
+through the dust      
+
+so they think i    
+am but a pretty baked morsel      
+**_with no crust_**
+
+_       
+[@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+02-28-018    
+
+- - -
+
 ## five simple minds
 
 - - -
