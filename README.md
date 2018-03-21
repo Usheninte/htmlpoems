@@ -18,6 +18,10 @@
     </script>
 </head>
 
+[read CRIMSOM SCARRED](http://bit.ly/READ_crimson-scarred)
+
+![CRIMSON SCARRED cover]()
+
 [download NEONBULLSH_T](http://bit.ly/NEONBULLSH_T---poetrique)
 
 ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
@@ -47,7 +51,7 @@ am but a pretty baked morsel
 _       
 [@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
-02-28-018    
+03-21-018    
 
 - - -
 
