@@ -34,6 +34,25 @@
 
 - - -
 
+#### maybe this is meant to be
+
+**_maybe_**  i am meant     
+to be alone and godly     
+**_maybe_**  i am meant     
+to have no one to love me     
+**_maybe_**  i am more      
+than ugly - but dont know this    
+
+**_maybe_**
+**_maybe_**
+**_maybe_**
+
+[by POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
 ## waterfall
 
 - - -
@@ -49,7 +68,7 @@ like a rollercoaster too
 _but i have never been on one_      
 
 _       
-[@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[by POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 03-22-018    
 
@@ -67,7 +86,7 @@ learn your weaknesses
 then train your demons      
 
 _       
-[@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[by POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 03-22-018    
 
@@ -89,7 +108,7 @@ why can i not
 like the ugly, just be      
 
 _       
-[@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[by POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 03-22-018    
 
