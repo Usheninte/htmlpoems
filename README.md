@@ -34,6 +34,67 @@
 
 - - -
 
+## waterfall
+
+- - -
+
+#### the wash
+
+life is but a journery      
+taken by the brave      
+and emotionally weak      
+
+i would say     
+like a rollercoaster too      
+_but i have never been on one_      
+
+_       
+[@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
+#### drowning happy
+
+wash your soul      
+in the rivers     
+of euphoria     
+
+eat like a baby     
+feel wavy     
+learn your weaknesses     
+then train your demons      
+
+_       
+[@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
+#### reason to fly
+
+**do i need**     
+in truth, a reason to fly     
+**do i need**     
+in truth, a reason to lie     
+
+_to myself_     
+_to my mother_      
+_to my father_      
+_to my lover:_ to be      
+
+why can i not      
+like the ugly, just be      
+
+_       
+[@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
 ## achy breaky heart
 
 i know why girls      
