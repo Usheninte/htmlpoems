@@ -34,6 +34,128 @@
 
 - - -
 
+## peacock soul
+
+- - -
+
+####  watch me dazzle
+
+i walk the simple way       
+of an angel, that does not pray     
+i know my path      
+i move now with decision      
+
+cut at my folly like a surgeon      
+you might not believe this      
+you who judge me      
+
+i do so so too      
+i also think my mind is ugly      
+indifference saved me     
+_from you and i_      
+taught me not to blink, as i fly      
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
+#### dreadlocks
+
+my hair is messy now      
+in a afro frown     
+with nappy curls      
+pure as the first     
+african god's smile     
+
+bless me whomsoever     
+is in charge of it all      
+i feel free, without worry      
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
+#### sleep like death
+
+forget the title      
+this is a happy poem      
+this is a mental totem      
+
+i sleep like my soul      
+is more than exhausted      
+i have had to ignore Saint Nico     
+his once holy kiss     
+now poisons     
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
+#### long sleeves
+
+i feel like the chains        
+i painted on my skin      
+have washed away      
+
+the sweat and blood     
+of murdered dreams      
+beat loud enough within     
+me, to awaken my soul
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - - 
+
+## song of modern icarus
+
+i fall then       
+pretend       
+to repent         
+
+do not go       
+too close to angels       
+their lovers        
+tend to fall        
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
+## be not deceived
+
+i am **far** from common
+i am **near** genius
+i am a creator
+i build and destroy
+
+i am not a boy
+a man was i from birth
+i never had a childhood
+i thought with
+too much **depth**
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)       
+03-22-018    
+
+- - -
+
 #### maybe this is meant to be
 
 **_maybe_**  i am meant     
@@ -43,11 +165,10 @@ to have no one to love me
 **_maybe_**  i am more      
 than ugly - but dont know this    
 
-**_maybe_**
-**_maybe_**
-**_maybe_**
+**_maybe_** **_maybe_** **_maybe_**
 
-[by POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+_       
+[by POETRIQUE](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 03-22-018    
 
@@ -68,7 +189,7 @@ like a rollercoaster too
 _but i have never been on one_      
 
 _       
-[by POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[by POETRIQUE](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 03-22-018    
 
@@ -86,7 +207,7 @@ learn your weaknesses
 then train your demons      
 
 _       
-[by POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[by POETRIQUE](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 03-22-018    
 
@@ -108,7 +229,7 @@ why can i not
 like the ugly, just be      
 
 _       
-[by POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[by POETRIQUE](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 03-22-018    
 
@@ -129,7 +250,7 @@ am but a pretty baked morsel
 **_with no crust_**
 
 _       
-[@ POETRIQUE on MEDIUM](http://medium.com/@Usheninte)      
+[by POETRIQUE](http://medium.com/@Usheninte)      
 [&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
 03-21-018    
 
