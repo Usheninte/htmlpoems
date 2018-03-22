@@ -49,7 +49,7 @@ cut at my folly like a surgeon
 you might not believe this      
 you who judge me      
 
-i do so so too      
+i do so too      
 i also think my mind is ugly      
 indifference saved me     
 _from you and i_      
@@ -57,15 +57,14 @@ taught me not to blink, as i fly
 
 _       
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
 #### dreadlocks
 
 my hair is messy now      
-in a afro frown     
+in an afro frown     
 with nappy curls      
 pure as the first     
 african god's smile     
@@ -76,8 +75,7 @@ i feel free, without worry
 
 _       
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
@@ -95,8 +93,7 @@ now poisons
 
 _       
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
@@ -113,8 +110,7 @@ me, to awaken my soul
 
 _       
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - - 
 
@@ -131,28 +127,26 @@ tend to fall
 
 _       
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
 ## be not deceived
 
-i am **far** from common
-i am **near** genius
-i am a creator
-i build and destroy
+i am **far** from common        
+i am **near** genius        
+i am a creator        
+i build and destroy       
 
-i am not a boy
-a man was i from birth
-i never had a childhood
-i thought with
-too much **depth**
+i am not a boy        
+a man was i from birth        
+i never had a childhood       
+i thought with        
+too much **depth**        
 
 _       
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
@@ -165,7 +159,7 @@ to have no one to love me
 **_maybe_**  i am more      
 than ugly - but dont know this    
 
-**_maybe_** **_maybe_** **_maybe_**
+**_maybe_** **_maybe_** **_maybe_**       
 
 _       
 [by POETRIQUE](http://medium.com/@Usheninte)      
