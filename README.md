@@ -98,7 +98,7 @@ _
 i lived in the land       
 of **_ndizi_** and **_chapati_**        
 i am a wanderer       
-i am not just talking
+i am not just talking       
 **sipigi kelele**
 
 i laugh as i write this       
