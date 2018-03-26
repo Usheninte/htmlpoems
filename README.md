@@ -18,10 +18,11 @@
     </script>
 </head>
 
+<!--
 [read CRIMSOM SCARRED](http://bit.ly/READ_crimson-scarred)
 
 ![CRIMSON SCARRED cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1521599027/crimson-scarred/crimson_scarred_COVER.jpg)
-
+-->
 [download NEONBULLSH_T](http://bit.ly/NEONBULLSH_T---poetrique)
 
 ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
@@ -31,6 +32,99 @@
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
+
+- - - 
+
+## lost heroes
+
+- - -
+
+#### artsy heart
+
+life is a tart        
+i doubt that i have       
+eaten one       
+
+_yet still_       
+_imagine it apart_        
+
+all torn up       
+infront of you        
+showing you secrets       
+what do you do        
+
+_yet still_       
+_imagine it apart_        
+
+how do you do       
+what you should do        
+seems like life       
+is fucked from start        
+
+_yet still_       
+_imagine it apart_        
+
+life is like an egg       
+i eat these often       
+they are good for the heart       
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+
+- - -
+
+#### proud dropout
+
+picked letting my sis       
+grow smarter, over        
+some dumb paper       
+
+i was **top** of a division       
+of a form, they made cause        
+i studied maths and history       
+
+_got first place, first term_       
+_then **left**_         
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+
+- - -
+
+#### eastern city flows
+
+i lived in the land       
+of **_ndizi_** and **_chapati_**        
+i am a wanderer       
+i am not just talking
+this is not just **sauti**
+
+i laugh as i write this
+confused just as i was
+back then when life was
+much simpler, when ties 
+were held up with smiles,
+instead of lies
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+
+- - -
+
+#### tape covered notes
+
+with you did i      
+first know love     
+intimate and timid      
+with you did i      
+first know loss     
+
+_       
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
 
 - - -
 
