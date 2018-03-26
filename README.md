@@ -49,7 +49,7 @@ _yet still_
 _imagine it apart_        
 
 all torn up       
-infront of you        
+in front of you        
 showing you secrets       
 what do you do        
 
@@ -59,7 +59,7 @@ _imagine it apart_
 how do you do       
 what you should do        
 seems like life       
-is fucked from start        
+is fucked from the start        
 
 _yet still_       
 _imagine it apart_        
@@ -99,14 +99,14 @@ i lived in the land
 of **_ndizi_** and **_chapati_**        
 i am a wanderer       
 i am not just talking
-this is not just **sauti**
+**sipigi kelele**
 
-i laugh as i write this
-confused just as i was
-back then when life was
-much simpler, when ties 
-were held up with smiles,
-instead of lies
+i laugh as i write this       
+confused just as i was        
+back then when life was       
+much simpler, when ties         
+were held up with smiles,       
+instead of lies       
 
 _       
 [=POETRIQUE=](http://medium.com/@Usheninte)      
