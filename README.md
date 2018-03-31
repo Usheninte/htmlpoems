@@ -33,6 +33,133 @@
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
+- - -
+
+- - -
+
+## east to west
+
+- - -
+
+#### Just right
+
+I’m not even sure how all this ties up,       
+To make sense but it feels right,       
+With knees to the ground and eyes up,       
+It just feels right.        
+
+With every mistake made and repeated,       
+Lessons not learnt and mind undefeated,       
+Repentance, repentance, secreted,       
+It all feels just right.        
+
+Encounter upon departure,       
+Departure upon merger,        
+Tightly-knit circles,       
+Now this, this feels quite right.       
+
+Loyalty to betrayal,        
+There’s never a round for trials,       
+Only those that are tribulations,       
+The test run is the actual situation,       
+Calculate your risks,       
+Even if you don’t,        
+At some point,      
+You can get used to anything,       
+It will all feel just right.        
+
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pepa ](http://instagram.com/electricpipe) 03-31-018     
+
+- - - -
+
+#### How to cook pride
+
+Chop it into pieces,      
+Stir it up in a bowl,       
+Boil it,        
+Sprinkle a spice here, a tear there,            
+Marinade it in justification and excuses,       
+Preheat your Dutch oven         
+that is you ever-so-accurate mind,      
+With a side of your largest ego,        
+You can butter the pan with the         
+lies that you tell yourself,        
+
+Fry it if you want,         
+Deep-fry it in the depth        
+of all the disappointment,      
+As the snaps of their heart         
+breaks echo from the fire,      
+
+After you have done all this,       
+Or whichever you please,        
+You may swallow it.     
+And wash it down with a tall glass       
+of that ice-cold heart.     
+
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pepa ](http://instagram.com/electricpipe) 03-31-018     
+
+- - - 
+
+#### Power to will
+
+Discipline,         
+Is the power of willpower,          
+The power to will your mind into        
+selectively choosing what is right for you,     
+Even when what is right for you         
+is not what is easy for you,        
+Even when what is right for you         
+might not be what is good for you,      
+At the time,        
+Even when what is right for you      
+might just be what brings you pain,     
+Even when what is right for         
+might not actually be right for you but right for,      
+Him, for her, for them.     
+
+The power to will your mind         
+into choosing tomorrow over today,      
+To look up from your screen         
+so you can see the bigger picture.      
+
+[=POETRIQUE=](http://medium.com/@Usheninte)      
+[&copy; Pepa ](http://instagram.com/electricpipe) 03-31-018     
+
+- - -
+
+#### Get to know you        
+
+The most fun I have ever had            
+ is getting to know me,         
+For me,         
+Through me,         
+Through God.            
+
+My likes, my dislikes,          
+My path …           
+Without the pressure and noise          
+from the buzzing of notifications,          
+Without justifying me           
+and actually being true to me.          
+
+Without feeling the need            
+to be complemented by anything or anyone,           
+Rushed by anything,         
+Compared, measured,         
+Genuinely living for me,            
+It is like an extra Sunday to the week,         
+Like the extra five minutes in the morning,         
+Like always being on top of your own peak,          
+And like the nightingale, I will sing,              
+The song of my rejoice that need not be sung,           
+For it is its own anthem.           
+
+[=POETRIQUE=](http://medium.com/@Usheninte)         
+[&copy; Pepa ](http://instagram.com/electricpipe) 03-31-018         
+
 - - - 
 
 ## lost heroes
