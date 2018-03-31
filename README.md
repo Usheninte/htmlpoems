@@ -69,7 +69,7 @@ You can get used to anything,
 It will all feel just right.        
 
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pepa ](http://instagram.com/electricpipe) 03-31-018     
+[&copy; apoetpepa ](http://instagram.com/electricpipe) 03-31-018     
 
 - - - -
 
@@ -99,7 +99,7 @@ And wash it down with a tall glass
 of that ice-cold heart.     
 
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pepa ](http://instagram.com/electricpipe) 03-31-018     
+[&copy; apoetpepa ](http://instagram.com/electricpipe) 03-31-018     
 
 - - - 
 
@@ -126,7 +126,7 @@ To look up from your screen
 so you can see the bigger picture.      
 
 [=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pepa ](http://instagram.com/electricpipe) 03-31-018     
+[&copy; apoetpepa ](http://instagram.com/electricpipe) 03-31-018     
 
 - - -
 
@@ -158,7 +158,7 @@ The song of my rejoice that need not be sung,
 For it is its own anthem.           
 
 [=POETRIQUE=](http://medium.com/@Usheninte)         
-[&copy; Pepa ](http://instagram.com/electricpipe) 03-31-018         
+[&copy; apoetpepa ](http://instagram.com/electricpipe) 03-31-018         
 
 - - - 
 
