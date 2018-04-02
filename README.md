@@ -34,6 +34,89 @@
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
 - - -
+- - -
+
+## mirrors
+
+when a soul         
+like mine i saw         
+i felt some joy         
+but life is coy         
+
+my new muse         
+is a regal woman        
+no simple child         
+a true human        
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
+## new week
+
+- - -
+
+#### mystery
+
+on a high stallion          
+went to secure          
+the blessings           
+of Saint Nico           
+
+at the edge         
+of the group            
+in a room           
+i feel the gloom            
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
+#### medusa
+
+has mystique            
+a quality           
+regal like cleo         
+
+blinds a normal man         
+melanin blessed         
+by the African sun          
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
+## bread and water
+
+that feeling of being artistic          
+that borders on madness,            
+far from realistic          
+
+that makes the simple           
+to feel they are kingly         
+that waters pure folly          
+and ruins humanity          
+
+**_it now haunts me_**          
+**_shall i fall or stand_**         
+
+that feeling of being artistic          
+that helps the weak         
+feel strong, and more than heroic           
+
+that makes the broken           
+rise and scream prophesy            
+that trims off all evil         
+from the soul of man            
+
+**_it now haunts me_**          
+**_shall i fall or stand_**         
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
 
 - - -
 
@@ -68,8 +151,8 @@ At some point,
 You can get used to anything,       
 It will all feel just right.        
 
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; apoetpepa ](http://instagram.com/electricpipe) 03-31-018     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018     
 
 - - - -
 
@@ -98,8 +181,8 @@ You may swallow it.
 And wash it down with a tall glass       
 of that ice-cold heart.     
 
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; apoetpepa ](http://instagram.com/electricpipe) 03-31-018     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018     
 
 - - - 
 
@@ -125,8 +208,8 @@ into choosing tomorrow over today,
 To look up from your screen         
 so you can see the bigger picture.      
 
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; apoetpepa ](http://instagram.com/electricpipe) 03-31-018     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018     
 
 - - -
 
@@ -157,8 +240,8 @@ And like the nightingale, I will sing,
 The song of my rejoice that need not be sung,           
 For it is its own anthem.           
 
-[=POETRIQUE=](http://medium.com/@Usheninte)         
-[&copy; apoetpepa ](http://instagram.com/electricpipe) 03-31-018         
+[=POETRIQUE=](http://instagram.com/poetrique)         
+[&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018         
 
 - - - 
 
@@ -196,7 +279,7 @@ i eat these often
 they are good for the heart       
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
 
 - - -
@@ -215,7 +298,7 @@ _got first place, first term_
 _then **left**_         
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
 
 - - -
@@ -236,7 +319,7 @@ were held up with smiles,
 instead of lies       
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
 
 - - -
@@ -250,7 +333,7 @@ with you did i
 first know loss     
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
 
 - - -
@@ -277,7 +360,7 @@ _from you and i_
 taught me not to blink, as i fly      
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
@@ -295,7 +378,7 @@ is in charge of it all
 i feel free, without worry      
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
@@ -313,7 +396,7 @@ his once holy kiss
 now poisons     
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
@@ -330,7 +413,7 @@ beat loud enough within
 me, to awaken my soul
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - - 
@@ -347,7 +430,7 @@ their lovers
 tend to fall        
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
@@ -366,7 +449,7 @@ i thought with
 too much **depth**        
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
+[=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
