@@ -36,6 +36,25 @@
 - - -
 - - -
 
+## why i smoke
+
+> to choke        
+the pain with me ...        
+> to stroke     
+the heart of my humanity        
+
+i no longer feel        
+the blessed touch of vanity     
+i am indifferent now        
+i no longer need to     
+_puffs_ ... smoke       
+**coughs**      
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
 ## mirrors
 
 when a soul         
@@ -108,7 +127,7 @@ that helps the weak
 feel strong, and more than heroic           
 
 that makes the broken           
-rise and scream prophesy            
+rise and scream prophecy            
 that trims off all evil         
 from the soul of man            
 
