@@ -36,6 +36,20 @@
 - - -
 - - -
 
+## simple questions
+
+i love life     
+yet want to die     
+
+how about you?      
+are you waiting for suicide     
+to come as death?       
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; ndindy ](#) 04-06-018     
+
+- - -
+
 ## why i smoke
 
 > to choke        
