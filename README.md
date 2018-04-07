@@ -19,7 +19,6 @@
 </head>
 
 [read CRIMSOM SCARRED](http://bit.ly/READ_crimson-scarred)
-
 <!--
 ![CRIMSON SCARRED cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1521599027/crimson-scarred/crimson_scarred_COVER.jpg)
 -->
@@ -34,6 +33,65 @@
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
 - - -
+- - -
+
+## nothing
+
+can save me       
+**change** me       
+
+not even        
+the cold hands        
+of a former lover       
+
+_nothing_       
+can save me       
+**change** me       
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-08-018     
+
+- - -
+
+## trascend
+
+- - -
+
+#### amadioha
+
+the world is simple
+i know this, deep within i fear
+the game has changed
+the new altar is the internet
+
+blood is not african polite
+so data be the sacrifice
+do you pray in mb
+or in gigabytes
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-08-018     
+
+- - -
+
+#### zamunda
+
+what if you were a king
+or a queen with a crown and a ring
+what if you were a royal
+with friends like family, loyal
+
+what if you were invisible
+an intellectual, lost amid the chaos
+what if you were simple
+would you not still be african
+
+**_grow from negro_**
+**_to negus for your negast_**
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-08-018     
+
 - - -
 
 ## simple questions
@@ -53,7 +111,7 @@ to come as death?
 ## why i smoke
 
 > to choke        
-the pain with me ...        
+the pain within me ...        
 > to stroke     
 the heart of my humanity        
 
