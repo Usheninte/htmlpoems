@@ -35,6 +35,21 @@
 - - -
 - - -
 
+## salvation
+
+is for the hopeful        
+i am too inclined to holy folly     
+i know my sins      
+are not that gnarly     
+
+am i to be saved      
+or be repraved      
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018 
+
+- - -
+
 ## nothing
 
 can save me       
@@ -49,7 +64,7 @@ can save me
 **change** me       
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-08-018     
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
 
 - - -
 
@@ -59,38 +74,38 @@ can save me
 
 #### amadioha
 
-the world is simple
-i know this, deep within i fear
-the game has changed
-the new altar is the internet
+the world is simple       
+i know this, deep within i fear       
+the game has changed        
+the new altar is the internet       
 
-blood is not african polite
-so data be the sacrifice
-do you pray in mb
-or in gigabytes
+blood is not african polite       
+so data be the sacrifice        
+do you pray in mb       
+or in gigabytes       
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-08-018     
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
 
 - - -
 
 #### zamunda
 
-what if you were a king
-or a queen with a crown and a ring
-what if you were a royal
-with friends like family, loyal
+what if you were a king       
+or a queen with a crown and a ring        
+what if you were a royal        
+with friends like family, loyal       
 
-what if you were invisible
-an intellectual, lost amid the chaos
-what if you were simple
-would you not still be african
+what if you were invisible        
+an intellectual, lost amid the chaos        
+what if you were simple       
+would you not still be african        
 
-**_grow from negro_**
-**_to negus for your negast_**
+**_grow from negro_**       
+**_to negus for your negast_**        
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-08-018     
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
 
 - - -
 
