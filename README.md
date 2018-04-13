@@ -19,6 +19,7 @@
 </head>
 
 [read CRIMSOM SCARRED](http://bit.ly/READ_crimson-scarred)
+
 <!--
 ![CRIMSON SCARRED cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1521599027/crimson-scarred/crimson_scarred_COVER.jpg)
 -->
@@ -33,6 +34,64 @@
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
 
 - - -
+- - -
+
+## rainy days
+
+- - -
+
+## sorry, nah
+
+to everybody      
+to nobody, sincerely      
+aint apologizing      
+
+for shit you dont like      
+for love you dont have      
+bye-bye one minute darling    
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-10-018 
+
+- - -
+
+## vegetarian
+
+for a year      
+clean blood for two     
+no toxins or nothing    
+no lean or nothing      
+no nicotine     
+
+**_thats something_**
+
+so you hear     
+i have no fear      
+with a cross on my wrist      
+i cant stand fake gist      
+cause Christ didnt die for eish     
+
+**_thats something_**
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-10-018 
+
+- - -
+
+#### propane
+
+shadows in my brain       
+mock my pain        
+**...** and again       
+
+i must refrain      
+from breathing propane      
+if i keep thinking fire insane      
+i might pop a mental vein     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-10-018 
+
 - - -
 
 ## salvation
