@@ -40,7 +40,7 @@
 
 - - -
 
-## sorry, nah
+#### sorry, nah
 
 to everybody      
 to nobody, sincerely      
@@ -51,11 +51,11 @@ for love you dont have
 bye-bye one minute darling    
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-10-018 
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
 
 - - -
 
-## vegetarian
+#### vegetarian
 
 for a year      
 clean blood for two     
@@ -74,7 +74,7 @@ cause Christ didnt die for eish
 **_thats something_**
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-10-018 
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
 
 - - -
 
@@ -90,7 +90,7 @@ if i keep thinking fire insane
 i might pop a mental vein     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-10-018 
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
 
 - - -
 
