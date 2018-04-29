@@ -18,7 +18,7 @@
     </script>
 </head>
 
-[read CRIMSOM SCARRED](http://bit.ly/READ_crimson-scarred)
+# welcome lovers of the verse and oddity
 
 <!--
 ![CRIMSON SCARRED cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1521599027/crimson-scarred/crimson_scarred_COVER.jpg)
@@ -36,6 +36,100 @@
 - - -
 - - -
 
+## i have lost the cocoon
+
+- - -
+
+#### mad butterfly free
+
+kaleidoscope fantasies      
+keep a broken prophet afloat      
+keep my ever sharpened    
+dagger-like mind      
+of my soul's throat     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-29-018     
+
+- - -
+
+#### hey there
+
+girl who ran away     
+when i simply     
+wanted to fetch a shirt or two      
+or the unisex dorm clothe line      
+
+i can not blame     
+you. It was midnight      
+i was in a tracksuit and a dark hat     
+plus i walk deadly      
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-29-018     
+
+- - -
+
+#### i know, i do
+
+that i am great      
+that i hold my fate     
+in the same hand      
+i construct this poetry with      
+
+like a soul with      
+a one-eye mind      
+i should not debate     
+with the guard, of      
+my blackened heart's gate     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-29-018     
+
+- - -
+
+#### what she said
+
+> called me a loner      
+close friend of the muse      
+i am still inclined to adore     
+
+even when she     
+leaves me in my agony for him     
+i can trust     
+she believes i can be more      
+
+> called me boring      
+when i think in every colour      
+of the most twisted monochromatic rainbow     
+
+i do not try to repent      
+of the anguish that i repress     
+for even gods weep      
+and some still have much fear     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-29-018     
+
+- - -
+
+## wait for my hair to grow
+
+then you will know      
+the manner of       
+**this** ancient bloody flow      
+**this** beauty that is my pain     
+
+_that_ boy you thought was nothing      
+_that_ genius you left, with no loving      
+you will learn that i am golden
+broken, wavy and holy
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-29-018     
+
+- - -
+
 ## rainy days
 
 - - -
@@ -51,7 +145,7 @@ for love you dont have
 bye-bye one minute darling    
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-13-018 
 
 - - -
 
@@ -74,7 +168,7 @@ cause Christ didnt die for eish
 **_thats something_**
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-13-018 
 
 - - -
 
@@ -90,7 +184,7 @@ if i keep thinking fire insane
 i might pop a mental vein     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-13-018 
 
 - - -
 
@@ -105,7 +199,7 @@ am i to be saved
 or be repraved      
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018 
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-09-018 
 
 - - -
 
@@ -123,7 +217,7 @@ can save me
 **change** me       
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-09-018     
 
 - - -
 
@@ -144,7 +238,7 @@ do you pray in mb
 or in gigabytes       
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-09-018     
 
 - - -
 
@@ -164,7 +258,7 @@ would you not still be african
 **_to negus for your negast_**        
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-09-018     
 
 - - -
 
@@ -197,7 +291,7 @@ _puffs_ ... smoke
 **coughs**      
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-03-018     
 
 - - -
 
@@ -214,7 +308,7 @@ no simple child
 a true human        
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-03-018     
 
 - - -
 
@@ -235,7 +329,7 @@ in a room
 i feel the gloom            
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-03-018     
 
 - - -
 
@@ -250,7 +344,7 @@ melanin blessed
 by the African sun          
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-03-018     
 
 - - -
 
@@ -281,7 +375,7 @@ from the soul of man
 **_shall i fall or stand_**         
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+[&copy; Pipe ](http://medium.com/@brokenpipegod) 04-03-018     
 
 - - -
 
@@ -445,7 +539,7 @@ they are good for the heart
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-26-018    
 
 - - -
 
@@ -464,7 +558,7 @@ _then **left**_
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-26-018    
 
 - - -
 
@@ -485,7 +579,7 @@ instead of lies
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-26-018    
 
 - - -
 
@@ -499,7 +593,7 @@ first know loss
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-26-018    
 
 - - -
 
@@ -526,7 +620,7 @@ taught me not to blink, as i fly
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-22-018    
 
 - - -
 
@@ -544,7 +638,7 @@ i feel free, without worry
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-22-018    
 
 - - -
 
@@ -562,7 +656,7 @@ now poisons
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-22-018    
 
 - - -
 
@@ -579,7 +673,7 @@ me, to awaken my soul
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-22-018    
 
 - - - 
 
@@ -596,7 +690,7 @@ tend to fall
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-22-018    
 
 - - -
 
@@ -615,7 +709,7 @@ too much **depth**
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
+[&copy; Pipe](http://medium.com/@brokenpipegod)  03-22-018    
 
 - - -
 
@@ -632,7 +726,7 @@ than ugly - but dont know this
 
 _       
 [by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 03-22-018    
 
 - - -
@@ -653,7 +747,7 @@ _but i have never been on one_
 
 _       
 [by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 03-22-018    
 
 - - -
@@ -671,7 +765,7 @@ then train your demons
 
 _       
 [by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 03-22-018    
 
 - - -
@@ -693,7 +787,7 @@ like the ugly, just be
 
 _       
 [by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 03-22-018    
 
 - - -
@@ -714,7 +808,7 @@ am but a pretty baked morsel
 
 _       
 [by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 03-21-018    
 
 - - -
@@ -747,7 +841,7 @@ you see, its all supertition
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-28-018    
 
 - - -
@@ -860,7 +954,7 @@ i seek no longer to please
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-23-018    
 
 - - -
@@ -883,7 +977,7 @@ will you come too ...
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-19-018    
 
 - - -
@@ -909,7 +1003,7 @@ peddling vanity
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-18-018    
 
 - - -
@@ -928,7 +1022,7 @@ the blind, of hell's true peak
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-18-018    
 
 - - -
@@ -947,7 +1041,7 @@ the girth of my delusion
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-18-018    
 
 - - -
@@ -967,7 +1061,7 @@ and fall sound asleep ...
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-18-018    
 
 - - -
@@ -1019,7 +1113,7 @@ till you claim it is your anthem
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-16-018    
 
 - - -
@@ -1040,7 +1134,7 @@ and gasped to weep
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-13-018    
 
 - - -
@@ -1065,7 +1159,7 @@ not every apple gets to be a tart
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-11-018    
 
 - - -
@@ -1085,7 +1179,7 @@ not hard to leave
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-09-018    
 
 - - -
@@ -1101,7 +1195,7 @@ spirit guides
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-09-018    
 
 - - -
@@ -1119,7 +1213,7 @@ bound to fall
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-09-018    
 
 - - -
@@ -1140,7 +1234,7 @@ pain, though once pent up
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-08-018    
 
 - - -
@@ -1189,7 +1283,7 @@ _even my girl knows i am far from normal_
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-05-018    
 
 - - - 
@@ -1204,7 +1298,7 @@ i understand but do not **fear the**
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-05-018    
 
 - - -
@@ -1224,7 +1318,7 @@ no every savior need be a saint
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-05-018    
 
 - - -
@@ -1239,7 +1333,7 @@ felt the thirst for the nicotine
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-05-018    
 
 - - -
@@ -1260,7 +1354,7 @@ and call it home
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-05-018    
 
 - - -
@@ -1281,7 +1375,7 @@ she is the smoothest singing palm
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 02-05-018    
 
 - - -
@@ -1294,7 +1388,7 @@ day, keeps the doctor away
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-28-018    
 
 - - -
@@ -1315,7 +1409,7 @@ act and perceive
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-28-018    
 
 - - - 
@@ -1335,7 +1429,7 @@ at my pain, laughs softly
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-28-018    
 
 - - -
@@ -1353,7 +1447,7 @@ for from a heaven, he fell
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-28-018    
 
 - - -
@@ -1373,7 +1467,7 @@ the soul they fight
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-28-018    
 
 - - -
@@ -1392,7 +1486,7 @@ will it all amount to _aught_
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-28-018    
 
 - - -
@@ -1411,7 +1505,7 @@ _my heart_ does stammer
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-28-018    
 
 - - -
@@ -1428,7 +1522,7 @@ you offered to bleed gold
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-27-018    
 
 - - -
@@ -1451,7 +1545,7 @@ holy perdition
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-27-018    
 
 - - -
@@ -1469,7 +1563,7 @@ i am but a semi-righteous being
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-27-018    
 
 - - -
@@ -1486,7 +1580,7 @@ i am not your boy
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://instagram.com/electricpipe)       
+[&copy; Pipe /\/|\/\ ](http://medium.com/@brokenpipegod)       
 01-27-018    
 
 - - -

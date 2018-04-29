@@ -20,8 +20,9 @@
 
 [read CRIMSOM SCARRED](http://bit.ly/READ_crimson-scarred)
 
+<!--
 ![CRIMSON SCARRED cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1521599027/crimson-scarred/crimson_scarred_COVER.jpg)
-
+-->
 [download NEONBULLSH_T](http://bit.ly/NEONBULLSH_T---poetrique)
 
 ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
@@ -31,6 +32,474 @@
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
+
+- - -
+- - -
+
+## rainy days
+
+- - -
+
+#### sorry, nah
+
+to everybody      
+to nobody, sincerely      
+aint apologizing      
+
+for shit you dont like      
+for love you dont have      
+bye-bye one minute darling    
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
+
+- - -
+
+#### vegetarian
+
+for a year      
+clean blood for two     
+no toxins or nothing    
+no lean or nothing      
+no nicotine     
+
+**_thats something_**
+
+so you hear     
+i have no fear      
+with a cross on my wrist      
+i cant stand fake gist      
+cause Christ didnt die for eish     
+
+**_thats something_**
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
+
+- - -
+
+#### propane
+
+shadows in my brain       
+mock my pain        
+**...** and again       
+
+i must refrain      
+from breathing propane      
+if i keep thinking fire insane      
+i might pop a mental vein     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-13-018 
+
+- - -
+
+## salvation
+
+is for the hopeful        
+i am too inclined to holy folly     
+i know my sins      
+are not that gnarly     
+
+am i to be saved      
+or be repraved      
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018 
+
+- - -
+
+## nothing
+
+can save me       
+**change** me       
+
+not even        
+the cold hands        
+of a former lover       
+
+_nothing_       
+can save me       
+**change** me       
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
+
+- - -
+
+## trascend
+
+- - -
+
+#### amadioha
+
+the world is simple       
+i know this, deep within i fear       
+the game has changed        
+the new altar is the internet       
+
+blood is not african polite       
+so data be the sacrifice        
+do you pray in mb       
+or in gigabytes       
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
+
+- - -
+
+#### zamunda
+
+what if you were a king       
+or a queen with a crown and a ring        
+what if you were a royal        
+with friends like family, loyal       
+
+what if you were invisible        
+an intellectual, lost amid the chaos        
+what if you were simple       
+would you not still be african        
+
+**_grow from negro_**       
+**_to negus for your negast_**        
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-09-018     
+
+- - -
+
+## simple questions
+
+i love life     
+yet want to die     
+
+how about you?      
+are you waiting for suicide     
+to come as death?       
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; ndindy ](#) 04-06-018     
+
+- - -
+
+## why i smoke
+
+> to choke        
+the pain within me ...        
+> to stroke     
+the heart of my humanity        
+
+i no longer feel        
+the blessed touch of vanity     
+i am indifferent now        
+i no longer need to     
+_puffs_ ... smoke       
+**coughs**      
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
+## mirrors
+
+when a soul         
+like mine i saw         
+i felt some joy         
+but life is coy         
+
+my new muse         
+is a regal woman        
+no simple child         
+a true human        
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
+## new week
+
+- - -
+
+#### mystery
+
+on a high stallion          
+went to secure          
+the blessings           
+of Saint Nico           
+
+at the edge         
+of the group            
+in a room           
+i feel the gloom            
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
+#### medusa
+
+has mystique            
+a quality           
+regal like cleo         
+
+blinds a normal man         
+melanin blessed         
+by the African sun          
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
+## bread and water
+
+that feeling of being artistic          
+that borders on madness,            
+far from realistic          
+
+that makes the simple           
+to feel they are kingly         
+that waters pure folly          
+and ruins humanity          
+
+**_it now haunts me_**          
+**_shall i fall or stand_**         
+
+that feeling of being artistic          
+that helps the weak         
+feel strong, and more than heroic           
+
+that makes the broken           
+rise and scream prophecy            
+that trims off all evil         
+from the soul of man            
+
+**_it now haunts me_**          
+**_shall i fall or stand_**         
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/electricpipe) 04-03-018     
+
+- - -
+
+## east to west
+
+- - -
+
+#### Just right
+
+I’m not even sure how all this ties up,       
+To make sense but it feels right,       
+With knees to the ground and eyes up,       
+It just feels right.        
+
+With every mistake made and repeated,       
+Lessons not learnt and mind undefeated,       
+Repentance, repentance, secreted,       
+It all feels just right.        
+
+Encounter upon departure,       
+Departure upon merger,        
+Tightly-knit circles,       
+Now this, this feels quite right.       
+
+Loyalty to betrayal,        
+There’s never a round for trials,       
+Only those that are tribulations,       
+The test run is the actual situation,       
+Calculate your risks,       
+Even if you don’t,        
+At some point,      
+You can get used to anything,       
+It will all feel just right.        
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018     
+
+- - - -
+
+#### How to cook pride
+
+Chop it into pieces,      
+Stir it up in a bowl,       
+Boil it,        
+Sprinkle a spice here, a tear there,            
+Marinade it in justification and excuses,       
+Preheat your Dutch oven         
+that is you ever-so-accurate mind,      
+With a side of your largest ego,        
+You can butter the pan with the         
+lies that you tell yourself,        
+
+Fry it if you want,         
+Deep-fry it in the depth        
+of all the disappointment,      
+As the snaps of their heart         
+breaks echo from the fire,      
+
+After you have done all this,       
+Or whichever you please,        
+You may swallow it.     
+And wash it down with a tall glass       
+of that ice-cold heart.     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018     
+
+- - - 
+
+#### Power to will
+
+Discipline,         
+Is the power of willpower,          
+The power to will your mind into        
+selectively choosing what is right for you,     
+Even when what is right for you         
+is not what is easy for you,        
+Even when what is right for you         
+might not be what is good for you,      
+At the time,        
+Even when what is right for you      
+might just be what brings you pain,     
+Even when what is right for         
+might not actually be right for you but right for,      
+Him, for her, for them.     
+
+The power to will your mind         
+into choosing tomorrow over today,      
+To look up from your screen         
+so you can see the bigger picture.      
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018     
+
+- - -
+
+#### Get to know you        
+
+The most fun I have ever had            
+ is getting to know me,         
+For me,         
+Through me,         
+Through God.            
+
+My likes, my dislikes,          
+My path …           
+Without the pressure and noise          
+from the buzzing of notifications,          
+Without justifying me           
+and actually being true to me.          
+
+Without feeling the need            
+to be complemented by anything or anyone,           
+Rushed by anything,         
+Compared, measured,         
+Genuinely living for me,            
+It is like an extra Sunday to the week,         
+Like the extra five minutes in the morning,         
+Like always being on top of your own peak,          
+And like the nightingale, I will sing,              
+The song of my rejoice that need not be sung,           
+For it is its own anthem.           
+
+[=POETRIQUE=](http://instagram.com/poetrique)         
+[&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018         
+
+- - - 
+
+## lost heroes
+
+- - -
+
+#### artsy heart
+
+life is a tart        
+i doubt that i have       
+eaten one       
+
+_yet still_       
+_imagine it apart_        
+
+all torn up       
+in front of you        
+showing you secrets       
+what do you do        
+
+_yet still_       
+_imagine it apart_        
+
+how do you do       
+what you should do        
+seems like life       
+is fucked from the start        
+
+_yet still_       
+_imagine it apart_        
+
+life is like an egg       
+i eat these often       
+they are good for the heart       
+
+_       
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+
+- - -
+
+#### proud dropout
+
+picked letting my sis       
+grow smarter, over        
+some dumb paper       
+
+i was **top** of a division       
+of a form, they made cause        
+i studied maths and history       
+
+_got first place, first term_       
+_then **left**_         
+
+_       
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+
+- - -
+
+#### eastern city flows
+
+i lived in the land       
+of **_ndizi_** and **_chapati_**        
+i am a wanderer       
+i am not just talking       
+**sipigi kelele**
+
+i laugh as i write this       
+confused just as i was        
+back then when life was       
+much simpler, when ties         
+were held up with smiles,       
+instead of lies       
+
+_       
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
+
+- - -
+
+#### tape covered notes
+
+with you did i      
+first know love     
+intimate and timid      
+with you did i      
+first know loss     
+
+_       
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-26-018    
 
 - - -
 
@@ -49,23 +518,22 @@ cut at my folly like a surgeon
 you might not believe this      
 you who judge me      
 
-i do so so too      
+i do so too      
 i also think my mind is ugly      
 indifference saved me     
 _from you and i_      
 taught me not to blink, as i fly      
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
 #### dreadlocks
 
 my hair is messy now      
-in a afro frown     
+in an afro frown     
 with nappy curls      
 pure as the first     
 african god's smile     
@@ -75,9 +543,8 @@ is in charge of it all
 i feel free, without worry      
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
@@ -94,9 +561,8 @@ his once holy kiss
 now poisons     
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
@@ -112,9 +578,8 @@ beat loud enough within
 me, to awaken my soul
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - - 
 
@@ -130,29 +595,27 @@ their lovers
 tend to fall        
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
 ## be not deceived
 
-i am **far** from common
-i am **near** genius
-i am a creator
-i build and destroy
+i am **far** from common        
+i am **near** genius        
+i am a creator        
+i build and destroy       
 
-i am not a boy
-a man was i from birth
-i never had a childhood
-i thought with
-too much **depth**
+i am not a boy        
+a man was i from birth        
+i never had a childhood       
+i thought with        
+too much **depth**        
 
 _       
-[=POETRIQUE=](http://medium.com/@Usheninte)      
-[&copy; Pipe](http://instagram.com/electricpipe)       
-03-22-018    
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe](http://instagram.com/electricpipe)  03-22-018    
 
 - - -
 
@@ -165,7 +628,7 @@ to have no one to love me
 **_maybe_**  i am more      
 than ugly - but dont know this    
 
-**_maybe_** **_maybe_** **_maybe_**
+**_maybe_** **_maybe_** **_maybe_**       
 
 _       
 [by POETRIQUE](http://medium.com/@Usheninte)      
