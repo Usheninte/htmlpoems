@@ -18,7 +18,9 @@
     </script>
 </head>
 
-# welcome lovers of the verse and oddity
+##### welcome lovers
+##### of the verse 
+##### and oddity
 
 <!--
 ![CRIMSON SCARRED cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1521599027/crimson-scarred/crimson_scarred_COVER.jpg)
