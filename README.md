@@ -44,7 +44,7 @@ kaleidoscope fantasies
 keep a broken prophet afloat      
 keep my ever sharpened    
 dagger-like mind      
-of my soul's throat     
+off my soul's throat     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe ](http://medium.com/@brokenpipegod) 04-29-018     
@@ -56,7 +56,7 @@ of my soul's throat
 girl who ran away     
 when i simply     
 wanted to fetch a shirt or two      
-or the unisex dorm clothe line      
+from off, the unisex dorm clothe line      
 
 i can not blame     
 you. It was midnight      
@@ -89,6 +89,7 @@ my blackened heart's gate
 #### what she said
 
 > called me a loner      
+
 close friend of the muse      
 i am still inclined to adore     
 
@@ -98,6 +99,7 @@ i can trust
 she believes i can be more      
 
 > called me boring      
+
 when i think in every colour      
 of the most twisted monochromatic rainbow     
 
@@ -120,8 +122,8 @@ the manner of
 
 _that_ boy you thought was nothing      
 _that_ genius you left, with no loving      
-you will learn that i am golden
-broken, wavy and holy
+you will learn that i am golden     
+broken, wavy and holy     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe ](http://medium.com/@brokenpipegod) 04-29-018     
