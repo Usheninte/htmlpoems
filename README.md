@@ -120,8 +120,8 @@ the manner of
 **this** ancient bloody flow      
 **this** beauty that is my pain     
 
-_that_ boy you thought was nothing      
-_that_ genius you left, with no loving      
+_that_  boy you thought was nothing      
+_that_  genius you left, with no loving      
 you will learn that i am golden     
 broken, wavy and holy     
 
