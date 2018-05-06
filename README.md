@@ -37,19 +37,19 @@
 
 ## in the storm
 
-blazing, truly amazing
-in the cold, yet still bold
-i no longer subscribe
-to all the lies that they told
+blazing, truly amazing      
+in the cold, yet still bold     
+i no longer subscribe     
+to all the lies that they told      
 
-> that i might not be that great
-> that i have to stop low
-> ... to suckle on my fate
+> that i might not be that great      
+> that i have to stop low     
+> ... to suckle on my fate      
 
-they will not soon know
-the wonder that i birth
-and then when they do
-they will plead, but waste breath
+they will not soon know     
+the wonder that i birth     
+and then when they do     
+they will plead, but waste breath     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe ](http://medium.com/@Usheninte) 05-05-018   
