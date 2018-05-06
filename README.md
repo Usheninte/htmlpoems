@@ -24,6 +24,7 @@
 [download NEONBULLSH_T](http://bit.ly/NEONBULLSH_T---poetrique)
 
 ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
+
 <!--
 [read AMPERSAND online](http://bit.ly/ampersand-poetrique) 
 -->
@@ -38,7 +39,7 @@
 
 blazing, truly amazing
 in the cold, yet still bold
-i now longer subscribe
+i no longer subscribe
 to all the lies that they told
 
 > that i might not be that great
