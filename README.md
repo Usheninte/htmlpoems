@@ -35,6 +35,28 @@
 - - -
 - - -
 
+![milzapoet_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_400/v1525712962/htmlpoems/milzapoet/milzapoet_1.jpg)
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Milzapoet ](https://www.instagram.com/milzapoet/) 05-07-018 
+
+- - -
+
+## hunger
+
+not for food      
+but for prophecy      
+
+no to be loved      
+but to give greatly     
+
+not for money     
+but for blessed glory     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://medium.com/@Usheninte) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 05-06-018     
+
+- - -
+
 ## in the storm
 
 blazing, truly amazing      
