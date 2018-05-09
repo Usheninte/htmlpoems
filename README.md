@@ -42,11 +42,11 @@
 - - -
 ## Mark My Words
 
-If I ever left a permanent mark on my skin because of you 
-Then know I loved you 
-Know that you hurt me and disappointed 
-Know that each mark represents every time you left me 
-Know that you're killing me without even knowing it
+If I ever left a permanent mark on my skin because of you       
+Then know I loved you       
+Know that you hurt me and disappointed      
+Know that each mark represents every time you left me       
+Know that you're killing me without even knowing it     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; ndindy ](#) XX-XX-018       
