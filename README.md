@@ -37,7 +37,7 @@
 
 ![mambo-7x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374067/htmlpoems/mambo/mambo-07.jpg)      
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> 02-28-018     
+[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> 05-09-018     
 
 - - -
 ## Mark My Words
@@ -49,13 +49,13 @@ Know that each mark represents every time you left me
 Know that you're killing me without even knowing it     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; ndindy ](#) XX-XX-018       
+[&copy; ndindy ](#) 05-09-018       
 
 - - -
 
 ![mambo-8x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374067/htmlpoems/mambo/mambo-08.jpg)      
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> XX-XX-018     
+[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> 05-09-018     
 
 - - -
 
