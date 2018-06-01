@@ -18,16 +18,10 @@
     </script>
 </head>
 
-<!--
-![CRIMSON SCARRED cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1521599027/crimson-scarred/crimson_scarred_COVER.jpg)
--->
-[download NEONBULLSH_T](http://bit.ly/NEONBULLSH_T---poetrique)
+[read NEONBULLSH_T](https://poetrique.github.io/neonbullsh-t/)
 
 ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
 
-<!--
-[read AMPERSAND online](http://bit.ly/ampersand-poetrique) 
--->
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
 
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
@@ -77,7 +71,7 @@ not for money
 but for blessed glory     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 05-06-018     
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 05-06-018     
 
 - - -
 
@@ -98,7 +92,7 @@ and then when they do
 they will plead, but waste breath     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 05-05-018   
+[&copy; Pipe ](http://instagram.com/poetrique) 05-05-018   
 - - -
 
 ## i have lost the cocoon
@@ -114,7 +108,7 @@ dagger-like mind
 off my soul's throat     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-29-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-29-018     
 
 - - -
 
@@ -131,7 +125,7 @@ i was in a tracksuit and a dark hat
 plus i walk deadly      
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-29-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-29-018     
 
 - - -
 
@@ -149,7 +143,7 @@ with the guard, of
 my blackened heart's gate     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-29-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-29-018     
 
 - - -
 
@@ -176,7 +170,7 @@ for even gods weep
 and some still have much fear     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-29-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-29-018     
 
 - - -
 
@@ -193,7 +187,7 @@ you will learn that i am golden
 broken, wavy and holy     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-29-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-29-018     
 
 - - -
 
@@ -212,7 +206,7 @@ for love you dont have
 bye-bye one minute darling    
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-13-018 
+[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018 
 
 - - -
 
@@ -235,7 +229,7 @@ cause Christ didnt die for eish
 **_thats something_**
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-13-018 
+[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018 
 
 - - -
 
@@ -251,7 +245,7 @@ if i keep thinking fire insane
 i might pop a mental vein     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-13-018 
+[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018 
 
 - - -
 
@@ -266,7 +260,7 @@ am i to be saved
 or be repraved      
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-09-018 
+[&copy; Pipe ](http://instagram.com/poetrique) 04-09-018 
 
 - - -
 
@@ -284,7 +278,7 @@ can save me
 **change** me       
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-09-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-09-018     
 
 - - -
 
@@ -305,7 +299,7 @@ do you pray in mb
 or in gigabytes       
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-09-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-09-018     
 
 - - -
 
@@ -325,7 +319,7 @@ would you not still be african
 **_to negus for your negast_**        
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-09-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-09-018     
 
 - - -
 
@@ -358,7 +352,7 @@ _puffs_ ... smoke
 **coughs**      
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-03-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-03-018     
 
 - - -
 
@@ -375,7 +369,7 @@ no simple child
 a true human        
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-03-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-03-018     
 
 - - -
 
@@ -396,7 +390,7 @@ in a room
 i feel the gloom            
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-03-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-03-018     
 
 - - -
 
@@ -411,7 +405,7 @@ melanin blessed
 by the African sun          
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-03-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-03-018     
 
 - - -
 
@@ -442,7 +436,7 @@ from the soul of man
 **_shall i fall or stand_**         
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://medium.com/@Usheninte) 04-03-018     
+[&copy; Pipe ](http://instagram.com/poetrique) 04-03-018     
 
 - - -
 
@@ -606,7 +600,7 @@ they are good for the heart
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-26-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-26-018    
 
 - - -
 
@@ -625,7 +619,7 @@ _then **left**_
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-26-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-26-018    
 
 - - -
 
@@ -646,7 +640,7 @@ instead of lies
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-26-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-26-018    
 
 - - -
 
@@ -660,7 +654,7 @@ first know loss
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-26-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-26-018    
 
 - - -
 
@@ -687,7 +681,7 @@ taught me not to blink, as i fly
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-22-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-22-018    
 
 - - -
 
@@ -705,7 +699,7 @@ i feel free, without worry
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-22-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-22-018    
 
 - - -
 
@@ -723,7 +717,7 @@ now poisons
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-22-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-22-018    
 
 - - -
 
@@ -740,7 +734,7 @@ me, to awaken my soul
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-22-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-22-018    
 
 - - - 
 
@@ -757,7 +751,7 @@ tend to fall
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-22-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-22-018    
 
 - - -
 
@@ -776,7 +770,7 @@ too much **depth**
 
 _       
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe](http://medium.com/@Usheninte)  03-22-018    
+[&copy; Pipe](http://instagram.com/poetrique)  03-22-018    
 
 - - -
 
@@ -792,8 +786,8 @@ than ugly - but dont know this
 **_maybe_** **_maybe_** **_maybe_**       
 
 _       
-[by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[by POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 03-22-018    
 
 - - -
@@ -813,8 +807,8 @@ like a rollercoaster too
 _but i have never been on one_      
 
 _       
-[by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[by POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 03-22-018    
 
 - - -
@@ -831,8 +825,8 @@ learn your weaknesses
 then train your demons      
 
 _       
-[by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[by POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 03-22-018    
 
 - - -
@@ -853,8 +847,8 @@ why can i not
 like the ugly, just be      
 
 _       
-[by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[by POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 03-22-018    
 
 - - -
@@ -874,8 +868,8 @@ am but a pretty baked morsel
 **_with no crust_**
 
 _       
-[by POETRIQUE](http://medium.com/@Usheninte)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[by POETRIQUE](http://instagram.com/poetrique)      
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 03-21-018    
 
 - - -
@@ -908,7 +902,7 @@ you see, its all supertition
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-28-018    
 
 - - -
@@ -1021,7 +1015,7 @@ i seek no longer to please
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-23-018    
 
 - - -
@@ -1044,7 +1038,7 @@ will you come too ...
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-19-018    
 
 - - -
@@ -1070,7 +1064,7 @@ peddling vanity
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-18-018    
 
 - - -
@@ -1089,7 +1083,7 @@ the blind, of hell's true peak
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-18-018    
 
 - - -
@@ -1108,7 +1102,7 @@ the girth of my delusion
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-18-018    
 
 - - -
@@ -1128,7 +1122,7 @@ and fall sound asleep ...
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-18-018    
 
 - - -
@@ -1180,7 +1174,7 @@ till you claim it is your anthem
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-16-018    
 
 - - -
@@ -1201,7 +1195,7 @@ and gasped to weep
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-13-018    
 
 - - -
@@ -1226,7 +1220,7 @@ not every apple gets to be a tart
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-11-018    
 
 - - -
@@ -1246,7 +1240,7 @@ not hard to leave
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-09-018    
 
 - - -
@@ -1262,7 +1256,7 @@ spirit guides
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-09-018    
 
 - - -
@@ -1280,7 +1274,7 @@ bound to fall
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-09-018    
 
 - - -
@@ -1301,7 +1295,7 @@ pain, though once pent up
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-08-018    
 
 - - -
@@ -1350,7 +1344,7 @@ _even my girl knows i am far from normal_
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-05-018    
 
 - - - 
@@ -1365,7 +1359,7 @@ i understand but do not **fear the**
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-05-018    
 
 - - -
@@ -1385,7 +1379,7 @@ no every savior need be a saint
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-05-018    
 
 - - -
@@ -1400,7 +1394,7 @@ felt the thirst for the nicotine
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-05-018    
 
 - - -
@@ -1421,7 +1415,7 @@ and call it home
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-05-018    
 
 - - -
@@ -1442,7 +1436,7 @@ she is the smoothest singing palm
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-05-018    
 
 - - -
@@ -1455,7 +1449,7 @@ day, keeps the doctor away
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-28-018    
 
 - - -
@@ -1476,7 +1470,7 @@ act and perceive
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-28-018    
 
 - - - 
@@ -1496,7 +1490,7 @@ at my pain, laughs softly
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-28-018    
 
 - - -
@@ -1514,7 +1508,7 @@ for from a heaven, he fell
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-28-018    
 
 - - -
@@ -1534,7 +1528,7 @@ the soul they fight
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-28-018    
 
 - - -
@@ -1553,7 +1547,7 @@ will it all amount to _aught_
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-28-018    
 
 - - -
@@ -1572,7 +1566,7 @@ _my heart_ does stammer
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-28-018    
 
 - - -
@@ -1589,7 +1583,7 @@ you offered to bleed gold
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-27-018    
 
 - - -
@@ -1612,7 +1606,7 @@ holy perdition
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-27-018    
 
 - - -
@@ -1630,7 +1624,7 @@ i am but a semi-righteous being
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-27-018    
 
 - - -
@@ -1647,7 +1641,7 @@ i am not your boy
 
 _       
 [@ POETRIQUE](http://instagram.com/poetrique)      
-[&copy; Pipe /\/|\/\ ](http://medium.com/@Usheninte)       
+[&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-27-018    
 
 - - -
