@@ -29,11 +29,257 @@
 - - -
 - - -
 
+## when i was low
+
+- - -
+
+#### gravitated
+
+> **_i am great_**     
+
+i whisper in my mind     
+all alone in the universe     
+but i am just a teen     
+
+> **_i am great_**     
+
+i want to believe     
+as i write this     
+i am alone on a field     
+
+> **_i am great_**     
+
+but my worth is in the stars     
+and i am on earth     
+on dust and stone, far from home
+
+> **_i am great_**     
+
+but who cares in truth     
+o breathe in smoke     
+to ease the pain     
+
+> **_i am great_**     
+
+but talk too much     
+but feel too much     
+will this gravitated pain, ever stop     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018    
+
+- - - 
+
+#### rooftop
+
+next and first     
+time i make love     
+it will be beneath the sky     
+on an elevated level     
+the simple will call a roof     
+
+i will be high     
+on a love potion     
+of wine and lean     
+i will forever afterwards     
+become of poetry, a god     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018    
+
+- - -
+
+#### sparrows
+
+on a wire line     
+seem at peace, and very kind     
+they seem so happy     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018    
+
+- - -
+
+#### calmer than stone
+
+my special yellow pill     
+makes me hungry     
+and inclined to sleep     
+makes me inclined to weep     
+
+if i were a bird     
+i would never fly.     
+even with wings     
+larger than the sky     
+i would be too shy to fly     
+
+no one understands me     
+so i will withdraw     
+not into a shell, that is but hell     
+
+solid i shall be     
+i know nothing yet     
+
+of the true me     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
+
+- - -
+
+## just zip it
+
+- - -
+
+#### why speak
+
+i seem weak     
+even with my     
+metal soul     
+even with     
+my liquid heart     
+
+my mind is broken     
+i have pushed my     
+muse away. What     
+else need be spoken     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
+
+- - -
+
+#### silence breathes
+
+i need to be     
+who i am, really     
+i have to be     
+who i am not, really     
+
+lock away     
+my beautiful     
+ordinary ways     
+silence raves     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
+
+- - -
+
+#### zip it, lock it, toss it
+
+baby please forgive     
+me for my folly     
+you did no     
+wrong     
+
+sorry     
+i am just     
+a man of worry     
+i slip as i grieve     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
+
+- - -
+
+## life choices
+
+- - -
+
+#### got me here
+
+so i do not care     
+cannot have a fear     
+when to no one     
+i am truly dear     
+
+i am brave i know     
+for i can call     
+and dismiss     
+my soul     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
+
+- - -
+
+#### dry heart
+
+my blood is cool,     
+a beautiful type     
+of eager drudgery     
+
+my love is an edged,     
+crooked type     
+of honest pottery     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018  
+
+- - -
+
+#### polymath blues
+
+i do too many things     
+i wear upon my head     
+holy banded rings     
+
+enough crowns     
+can cripple the mind     
+and turn an able king     
+into the loudest     
+of clowns     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
+
+- - -
+
+#### soul-ache
+
+i know not     
+how to smile     
+without misery     
+how to paint a lie     
+light and lovely     
+
+right and justly     
+have i     
+been treated, fairly     
+by the forces     
+of love. Here _sigh_     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
+
+- - -
+
+## torch
+
+i burn away     
+this night, this day     
+all shame - the way     
+i once did     
+choose to sway     
+
+i ignite within     
+the torch of truth     
+i shall wear it bold     
+upon my soul's     
+very cold, tooth     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
+
+- - -
+
 ![mambo-7x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374067/htmlpoems/mambo/mambo-07.jpg)      
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> 05-09-018     
 
 - - -
+
 ## Mark My Words
 
 If I ever left a permanent mark on my skin because of you       
