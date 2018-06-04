@@ -248,7 +248,7 @@ right and justly
 have i     
 been treated, fairly     
 by the forces     
-of love. Here _sigh_     
+of love. Here i _sigh_     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018     
