@@ -29,6 +29,14 @@
 - - -
 - - -
 
+## Daddy's Little Girl
+
+![daddys-little-girl=zee_zah19](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_550/v1528205454/htmlpoems/zee_zah19/03-daddys-little-girl_zee_zah19.jpg)     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; zee_zah19 ](http://instagram.com/zee_zah19) 06-05-018     
+
+- - -
+
 ## when i was low
 
 - - -
