@@ -18,13 +18,16 @@
     </script>
 </head>
 
-[read NEONBULLSH_T](https://poetrique.github.io/neonbullsh-t/)
+[read ODD HEARTS](http://bit.ly/read_Odd_Hearts)     
 
-![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
+![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg)     
 
-[read The ADHD Chapbook](http://bit.ly/adhd-poetrique)
+[read NEONBULLSH_T](https://poetrique.github.io/neonbullsh-t/)     
+<!-- ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png) -->
 
-[visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)
+[read The ADHD Chapbook](http://bit.ly/adhd-poetrique)     
+
+[visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)     
 
 - - -
 - - -
