@@ -29,6 +29,41 @@
 - - -
 - - -
 
+## Bravado
+
+don't need your platform to perform      
+a chance to prove myself      
+am improving I just need to money-proof myself      
+still selfish with beef     
+many were called I choose myself      
+make e'm see reasons never to re-introduce themselves     
+just praise ma absence     
+crave ma presence      
+i propose your purpose is to be obsessed      
+with the power I possess      
+so you can expose secrets n dispose      
+your fears then do away with whatever      
+comes close when you suppose      
+bring down to nothing everything      
+they think they have upstairs     
+then leave e'm upset     
+lights cameras action     
+Am I yet on set?     
+nah fuck fame     
+am a project in progress n     
+winter is coming     
+brace yourself     
+create some space to separate spite from hate,      
+light from weight,then embrace      
+yourself hoping someone relates     
+forsake the fake to die for a sake      
+n wake when everybody think its late     
+
+[=POETRIQUE=](http://instagram.com/poetrique)     
+[&copy; theorvcle](https://www.instagram.com/theorvcle/) 06-08-018     
+
+- - -
+
 ## Daddy's Little Girl
 
 ![daddys-little-girl=zee_zah19](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_100,w_550/v1528205454/htmlpoems/zee_zah19/03-daddys-little-girl_zee_zah19.jpg)     
