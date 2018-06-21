@@ -32,6 +32,29 @@
 - - -
 - - -
 
+## Uncertain
+
+I feel in love with you to lift my burden      
+Because I couldn't carry it alone      
+I wasn't strong enough to       
+
+I thought you knew it       
+Now I wake up an empty vessel       
+Incomplete       
+
+Uncertain of how to continue...      
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; ndindy ](@n_d_yy_) XX-XX-018       
+
+- - -
+
+![mambo-6x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-06.jpg)
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> XX-XX-018      
+
+- - -
+
 ## Bravado
 
 don't need your platform to perform      
