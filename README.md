@@ -32,6 +32,14 @@
 - - -
 - - -
 
+## A Single World
+
+![a-single-world ZEE_ZAH19](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1528205455/htmlpoems/zee_zah19/02-a-single-world_zee_zah19.jpg)     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; zee_zah19 ](http://instagram.com/zee_zah19) 06-21-018     
+
+- - -
+
 ## Uncertain
 
 I feel in love with you to lift my burden      
@@ -45,13 +53,13 @@ Incomplete
 Uncertain of how to continue...      
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; ndindy ](@n_d_yy_) XX-XX-018       
+[&copy; ndindy ](@n_d_yy_) 06-21-018       
 
 - - -
 
-![mambo-6x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-06.jpg)
+![mambo-6x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-06.jpg)     
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> XX-XX-018      
+[&copy; mambo](http://instagram.com/manlikemambo) <i class="em em-candy"></i> 06-21-018      
 
 - - -
 
