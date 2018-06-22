@@ -32,6 +32,48 @@
 - - -
 - - -
 
+## untitled
+
+I think of ways to  give up for good     
+But remember that my life isn't mine     
+Waiting for suicide to come as death     
+
+I really want to cut myself     
+But I can't,  because I  made a promise     
+I'm sad angry and hurt     
+I'm tired of life     
+I want to cry but I  can't     
+I'm so sorry for ranting to you     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; ndindy ](@n_d_yy_) 06-22-018       
+
+- - -
+
+![mambo-5x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-05.jpg)     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; mambo](http://instagram.com/poetry_by_mambo) <i class="em em-candy"></i> 06-22-018
+
+- - -
+
+## shall i speak of love
+
+when a boy     
+I wanted a father     
+
+now a man     
+I search for a lover     
+one to bless with kisses     
+of philosophy and bliss     
+
+a warm soul     
+like no other     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Pipe Epic](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-22-018     
+
+- - -
+
 ## A Single World
 
 ![a-single-world ZEE_ZAH19](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1528205455/htmlpoems/zee_zah19/02-a-single-world_zee_zah19.jpg)     
