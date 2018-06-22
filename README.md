@@ -70,7 +70,7 @@ a warm soul
 like no other     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe Epic](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-22-018     
+[&copy; Pipe Epic](http://instagram.com/poetrique) <i class="em em-honey_pot"></i> 06-22-018     
 
 - - -
 
