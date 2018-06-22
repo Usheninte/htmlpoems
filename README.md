@@ -84,7 +84,7 @@ like no other
 
 ## Uncertain
 
-I feel in love with you to lift my burden      
+I fell in love with you to lift my burden      
 Because I couldn't carry it alone      
 I wasn't strong enough to       
 
@@ -95,7 +95,7 @@ Incomplete
 Uncertain of how to continue...      
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; ndindy ](@n_d_yy_) 06-21-018       
+[&copy; ndindy ](http://instagram.com/n_d_yy_) 06-21-018       
 
 - - -
 
