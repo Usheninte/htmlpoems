@@ -45,7 +45,7 @@ one dark and sure
 their love, both bold and pure     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Usheninte](http://twitter.com/Usheninte) 07-XX-018     
+[&copy; Usheninte](http://twitter.com/Usheninte) 07-05-018     
 
 - - -
 
@@ -57,7 +57,7 @@ a name is nothing to play with
 i bear mine, and lose no sleep     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Usheninte](http://twitter.com/Usheninte) 07-XX-018     
+[&copy; Usheninte](http://twitter.com/Usheninte) 07-05-018     
 
 - - -
 
@@ -65,7 +65,7 @@ i bear mine, and lose no sleep
 
 ![mambo-4x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-04.jpg)     
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; mambo](http://instagram.com/poetry_by_mambo) <i class="em em-candy"></i> XX-XX-018	   
+[&copy; mambo](http://instagram.com/poetry_by_mambo) <i class="em em-candy"></i> 06-17-018	   
 
 ...     
 ..     
@@ -73,7 +73,7 @@ i bear mine, and lose no sleep
 
 ![mambo-3x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-03.jpg)     
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; mambo](http://instagram.com/poetry_by_mambo) <i class="em em-candy"></i> XX-XX-018     
+[&copy; mambo](http://instagram.com/poetry_by_mambo) <i class="em em-candy"></i> 06-17-018     
 
 - - -
 
