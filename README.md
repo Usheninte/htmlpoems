@@ -32,6 +32,35 @@
 - - -
 - - -
 
+## july 5th 2018
+
+every time thunder     
+kisses the night sky     
+the stars shift with grace     
+i hear the heavens sigh     
+
+two perfect lovers     
+one inconsistent, shy     
+one dark and sure     
+their love, both bold and pure     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) 07-XX-018     
+
+- - -
+
+## pipe no longer smokes
+
+the moniker holds no meaning     
+games are for the weak     
+a name is nothing to play with     
+i bear mine, and lose no sleep     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) 07-XX-018     
+
+- - -
+
 ## Mambo Exclusive
 
 ![mambo-4x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-04.jpg)     
