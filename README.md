@@ -32,6 +32,34 @@
 - - -
 - - -
 
+## Open places
+
+#### 1. Wasted
+
+My dignity given to a damn fool     
+Just like common water, thrown away     
+    without value     
+All for the pleasure of fame...     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; ndindy ](http://instagram.com/n_d_yy_) XX-XX-018       
+
+...     
+..     
+.     
+
+#### 2. Him 
+
+He read my words and understood me     
+The words I didn't understand he understood     
+And drawing meaning out of it,     
+Gave me something I had forgotten.     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; ndindy ]http://instagram.com/n_d_yy_) XX-XX-018       
+
+- - -
+
 ## july 5th 2018
 
 every time thunder     
