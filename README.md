@@ -42,7 +42,7 @@ without value
 All for the pleasure of fame...     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; ndindy ](http://instagram.com/n_d_yy_) JUL-06-018       
+[&copy; ndindy ](http://instagram.com/n_d_yy_) __ JUL-06-018       
 
 ...     
 ..     
@@ -56,7 +56,7 @@ And drawing meaning out of it,
 Gave me something I had forgotten.     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; ndindy ](http://instagram.com/n_d_yy_) JUL-06-018       
+[&copy; ndindy ](http://instagram.com/n_d_yy_) __ JUL-06-018       
 
 - - -
 
