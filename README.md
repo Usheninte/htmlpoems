@@ -38,7 +38,7 @@
 
 i do not want a girlfriend     
 _that's childish_     
-i want a lover     
+i want a **lover**     
 _that's grown sh!t_     
 
 i want my moon     
@@ -51,23 +51,31 @@ and kiss me with warmth
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-07-018     
 
+...     
+..     
+.     
+
 #### pluto
 
-love is for the brave     
+love is for **the brave**     
 and the brave don't sleep     
 ... the brave don't keep     
-what they don't need to     
-... the brave don't weep     
+what they _don't need to_     
+... the brave don't _weep_     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-07-018     
+
+...     
+..     
+.     
 
 #### uranus
 
 we dance close to the sun      
 nearer to the moon though      
-for love is lunacy      
-and a heavenly fantasy      
+for **love is** lunacy      
+and a heavenly **fantasy**      
 
 but i can promise nothing      
 i am darker than eternity      
