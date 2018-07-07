@@ -32,6 +32,53 @@
 - - -
 - - -
 
+## enter my universe
+
+#### venus
+
+i do not want a girlfriend     
+_that's childish_     
+i want a lover     
+_that's grown sh!t_     
+
+i want my moon     
+to tickle a star     
+i want a sun     
+to wrap around     
+my cold heart     
+and kiss me with warmth     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-07-018     
+
+#### pluto
+
+love is for the brave     
+and the brave don't sleep     
+... the brave don't keep     
+what they don't need to     
+... the brave don't weep     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-07-018     
+
+#### uranus
+
+we dance close to the sun      
+nearer to the moon though      
+for love is lunacy      
+and a heavenly fantasy      
+
+but i can promise nothing      
+i am darker than eternity      
+the joy of life, the pain of love      
+sound alike to me      
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-07-018     
+
+- - -
+
 ## moist
 
 to speak to my readers     
