@@ -27,7 +27,7 @@
 
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)     
 
-[visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)     
+[visit @POETRIQUE on INSTAGRAM](http://instagram.com/poetrique)     
 
 - - -
 
