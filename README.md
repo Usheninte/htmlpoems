@@ -38,7 +38,7 @@
 what or who, do you worship     
 are you brave enough     
 to love the broken, and rough     
-_bad gyal_ you claim to be     
+**_bad gyal_**  you claim to be     
 you wild lies have no teeth     
 
 come at me, test a poet warrior     
@@ -57,8 +57,8 @@ you will not survive in your canoe
 #### a million
 
 can honesty fit     
-in a tight, five-lined haiku
-thoughts roar in me
+in a tight, five-lined haiku     
+thoughts roar in me     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-08-018     
@@ -76,7 +76,7 @@ she did not believe my lies
 
 i am no saint     
 a crown does not mean honesty     
-i told honestly     
+i told her honestly     
 everything i did see     
 that her vanity was far deeper     
 than the oceans, than any sea     
