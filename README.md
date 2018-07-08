@@ -30,6 +30,48 @@
 [visit POETRIQUE's INSTAGRAM](http://instagram.com/poetrique)     
 
 - - -
+
+## crown
+
+she said, she was not a queen     
+she claimed she was too dirty-minded     
+to be that within     
+she did not believe my lies     
+
+i am no saint     
+a crown does not mean honesty     
+i told honestly     
+everything i did see     
+that her vanity was far deeper     
+than the oceans, than any sea     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-08-018     
+
+- - -
+
+## strength
+
+i feel the weakness     
+of my wrong decisions     
+it will be dealt with     
+without resolutions     
+
+i will redeem my fire     
+the strength that i desire     
+it will come to me     
+as surely as blessings     
+from clouds on high     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-08-018     
+
+- - -
+
+[milzapoet_2](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1529740776/htmlpoems/milzapoet/milzapoet_2.jpg)     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; milzapoet ](http://instagram.com/milzapoet) ::: JUL-08-018     
+
 - - -
 
 ## enter my universe
