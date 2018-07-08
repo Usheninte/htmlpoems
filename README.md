@@ -31,7 +31,43 @@
 
 - - -
 
-## crown
+## no more white lies
+
+#### nymph
+
+what or who, do you worship     
+are you brave enough     
+to love the broken, and rough     
+_bad gyal_ you claim to be     
+you wild lies have no teeth     
+
+come at me, test a poet warrior     
+twist and combine your thighs with mine     
+let us erupt an artistic volcano     
+my mind is a rabid ocean     
+you will not survive in your canoe     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-08-018     
+
+...     
+..     
+.     
+
+#### a million
+
+can honesty fit     
+in a tight, five-lined haiku
+thoughts roar in me
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-08-018     
+
+...     
+..     
+.     
+
+#### crown
 
 she said, she was not a queen     
 she claimed she was too dirty-minded     
