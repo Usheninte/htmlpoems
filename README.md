@@ -31,6 +31,26 @@
 
 - - -
 
+## rhythm
+
+smile when you see me     
+darling react. Yes, really     
+dare to make me feel     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-09-018     
+
+- - -
+
+## jungle
+
+![jungle BY Usheninte](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1531116859/htmlpoems/ninte/jungle.png)
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-XX-018     
+
+- - -
+
 ## no more white lies
 
 #### nymph
