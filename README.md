@@ -26,6 +26,82 @@
 
 - - -
 
+## bohemian prophecy
+
+#### binary
+
+confident as a lion     
+i will no longer shave my mane     
+to claim one is a king     
+and then to fall, are not the same     
+i must be what i choose to be     
+... do what i have to,
+to do what i want to     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-10-018     
+
+#### dotcom money
+
+i code for the art of it     
+write, for the love of it     
+love, for the act of it     
+work for a simple reason     
+for the feel of paper cheddar on skin
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-10-018     
+
+#### godzone
+
+i have a tough yet simple     
+relationship, with the Creator     
+my Creator, a creation probably, of his Creation     
+
+when in the godzone     
+i think in colour     
+and dream in odd numbers     
+i want to be blessed, so     
+the universe I address     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-10-018     
+
+#### zero hero
+
+not a saint, kind of godly     
+the first i sigh for     
+the second, i pray for     
+i collect every drop of strength     
+i have tossed into the universe     
+for She tells me, it should not     
+frighten my soul anymore     
+that i am old enough to love her now     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-10-018     
+
+- - - 
+
+## Ears to the sky
+
+If you listen to me 
+you'll be able to tell that I'm not alright, 
+
+that I'm dying and 
+there's nothing you can do about it
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; ndindy ](http://instagram.com/n_d_yy_) ::: JUL-10-018       
+
+- - -
+
+![blackbird ZEE_ZAH19](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1528205453/htmlpoems/zee_zah19/01-blackbird_zee_zah_19.jpg)     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; zee_zah19 ](http://instagram.com/zee_zah19) ::: JUL-10-018     
+
+- - -
+
 ## rhythm
 
 smile when you see me     
