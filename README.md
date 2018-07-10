@@ -28,7 +28,7 @@
 
 ## bohemian prophecy
 
-#### binary
+#### the African
 
 confident as a lion     
 i will no longer shave my mane     
