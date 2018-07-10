@@ -35,7 +35,7 @@ i will no longer shave my mane
 to claim one is a king     
 and then to fall, are not the same     
 i must be what i choose to be     
-... do what i have to,
+... do what i have to,      
 to do what i want to     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
@@ -56,7 +56,8 @@ for the feel of paper cheddar on skin
 
 i have a tough yet simple     
 relationship, with the Creator     
-my Creator, a creation probably, of his Creation     
+my Creator, a creation      
+probably, of his Creation     
 
 when in the godzone     
 i think in colour     
@@ -85,11 +86,12 @@ that i am old enough to love her now
 
 ## Ears to the sky
 
-If you listen to me 
-you'll be able to tell that I'm not alright, 
+If you listen to me      
+you'll be able to tell      
+that I'm not alright,      
 
-that I'm dying and 
-there's nothing you can do about it
+that I'm dying and      
+there's nothing you can do about it     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; ndindy ](http://instagram.com/n_d_yy_) ::: JUL-10-018       
