@@ -26,6 +26,15 @@
 
 - - -
 
+## Preacher
+
+![milzapoet_3-preacher](http://res.cloudinary.com/poetrique/image/upload/q_auto:best/v1531406642/htmlpoems/milzapoet/milzapoet_3-preacher.png)
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Milzapoet ](https://www.instagram.com/milzapoet/) ::: JUL-12-018  			   
+
+- - -
+
 ## gemini choices
 
 #### strong++
@@ -62,15 +71,6 @@ and force it to look at me
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-12-018     
-
-- - -
-
-## Preacher
-
-!milzapoet_3-preacher](http://res.cloudinary.com/poetrique/image/upload/q_auto:best/v1531406642/htmlpoems/milzapoet/milzapoet_3-preacher.png)
-
-[=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Milzapoet ](https://www.instagram.com/milzapoet/) ::: JUL-12-018  			   
 
 - - -
 
