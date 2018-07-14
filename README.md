@@ -26,6 +26,21 @@
 
 - - -
 
+## This is about you lol 
+
+As I lay down to sleep 
+I suddenly get a glimpse of you 
+
+> in my head and a smile appeared on my face 
+
+Knowing that you're into my head 
+Which is good but yet so terrible 
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; ndindy ](http://instagram.com/n_d_yy_) ::: JUL-14-018       
+
+- - -
+
 ![mambo-2x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-02.jpg)     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
