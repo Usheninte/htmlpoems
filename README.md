@@ -26,6 +26,13 @@
 
 - - -
 
+![mambo-2x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-02.jpg)     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; mambo](http://instagram.com/poetry_by_mambo) <i class="em em-candy"></i> ::: JUL-14-018     
+
+- - -
+
 ## Preacher
 
 ![milzapoet_3-preacher](http://res.cloudinary.com/poetrique/image/upload/q_auto:best/v1531406642/htmlpoems/milzapoet/milzapoet_3-preacher.png)
