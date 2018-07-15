@@ -26,6 +26,14 @@
 
 - - -
 
+## first
+
+![mambo-1x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-01.jpg)     
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; mambo](http://instagram.com/poetry_by_mambo) <i class="em em-candy"></i> ::: JUL-XX-018
+
+- - -
+
 ## This is about you lol 
 
 As I lay down to sleep 
