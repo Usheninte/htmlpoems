@@ -29,7 +29,7 @@
 ## confession
 
 i cannot promise you joy     
-for i do not walk its path     
+for i yet still learn it     
 the road to strength, to truth     
 is full of labour and wrath     
 
