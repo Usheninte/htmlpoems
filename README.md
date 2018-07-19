@@ -26,7 +26,34 @@
 
 - - -
 
+## Scaredy-cat
 
+Brightness of the day fades away.     
+The rise of a gloomy night.     
+Owls echoing within the walls.     
+Boom!!! That sound of thunder,     
+Took the whole of my fears further.     
+
+Illusion; what it first seems like.     
+Slowly, a U-turn into pure reality.     
+One by one, step by step,     
+it breaks the soul to pieces.     
+A candy that became suddenly sour.     
+
+**_“Face your own fears”_**     
+The quote that every tongue quotes,     
+Like it is as easy as ABC.     
+But when the demons rise up,     
+Running seems to be the best option.     
+
+Scary, scary, scary     
+Dark nights are scary,     
+Damn!!! Nights are scary.     
+And I am weary.     
+I am a scaredy-cat.     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; zee_zah19 ](http://instagram.com/zee_zah19) ::: JUL-19-018     
 
 - - -
 
