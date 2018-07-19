@@ -26,6 +26,44 @@
 
 - - -
 
+## vent
+
+#### redemption
+
+prophet prophecy     
+prophet tell a lie     
+prophet tell me why     
+
+i beg for redemption     
+but i am denied entrance     
+to the kingdom in the sky     
+
+i ought to speak positive     
+i am a member of the throne of heaven     
+_do not ask me how, or why_
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-XX-018     
+
+## i hardly sleep now
+
+i code when i wake up     
+i dream in JavaScript     
+i scream into the terminal     
+that is my mind     
+
+that is how i push these poems     
+my own self-prescribed     
+literary pills     
+
+i do not strive to feel     
+the feelings come yet still     
+i know now, not to think     
+of them, at all, as real     
+
+
+- - -
+
 ## first
 
 ![mambo-1x](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1519374065/htmlpoems/mambo/mambo-01.jpg)     
