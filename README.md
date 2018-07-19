@@ -26,6 +26,29 @@
 
 - - -
 
+## confession
+
+i cannot promise you joy     
+for i do not walk its path     
+the road to strength, to truth     
+is full of labour and wrath     
+
+if you still choose to love     
+**by all means** continue along     
+just beware, i am more used to     
+the anxiety of vigour     
+than being under love's stupour     
+
+i will teach you, heal you, give you     
+drops of warmth and wisdom     
+from the sun and way beyond     
+that is all i can offer, in place of love     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-19-018     
+
+- - -
+
 ## Sacrifices
 
 ![milzapoet_4-sacrifices](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1531406644/htmlpoems/milzapoet/milzapoet_4-sacrifices.png)     
