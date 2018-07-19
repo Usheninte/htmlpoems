@@ -26,6 +26,15 @@
 
 - - -
 
+## Sacrifices
+
+![milzapoet_4-sacrifices](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1531406644/htmlpoems/milzapoet/milzapoet_4-sacrifices.png)     
+
+[=POETRIQUE=](http://instagram.com/poetrique)      
+[&copy; Milzapoet ](https://www.instagram.com/milzapoet/) ::: JUL-19-018  			   
+
+- - -
+
 ## Scaredy-cat
 
 Brightness of the day fades away.     
