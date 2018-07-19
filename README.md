@@ -26,6 +26,10 @@
 
 - - -
 
+
+
+- - -
+
 ## vent
 
 #### redemption
@@ -43,7 +47,7 @@ i am a member of the throne of heaven
 _do not ask me how, or why_
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-XX-018     
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-19-018     
 
 ## i hardly sleep now
 
@@ -62,7 +66,7 @@ i know now, not to think
 of them, at all, as real     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-XX-018     
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-19-018     
 
 - - -
 
