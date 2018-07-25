@@ -28,6 +28,42 @@
 
 - - -
 
+## the citadel
+
+#### premium
+
+a taste of greatness  
+was what i first sought  
+when i got into the citadel  
+
+a taste of meekness  
+is all i still seek  
+to rise up, from where  
+i once fell  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-25-018  
+
+#### aqua vita
+
+water is life  
+i know no more strife  
+i have wedded peace  
+she brings me new life  
+
+each time that we tangle  
+heart with soul  
+flesh with skin  
+i learn more of wisdom  
+
+we **make love**  
+sweet, _sublime_  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-25-018  
+
+- - -
+
 ## confession
 
 i cannot promise you joy     
