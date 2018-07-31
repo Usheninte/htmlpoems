@@ -25,6 +25,19 @@
 [read ODD HEARTS](http://bit.ly/read_Odd_Hearts)     
 
 ![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg)     
+- - -
+
+## haiku samurai
+
+can i make you wet  
+in two or three words  
+i must regain, my control  
+over the syllable slim  
+
+poetry brief, is bold  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-31-018  
 
 - - -
 
