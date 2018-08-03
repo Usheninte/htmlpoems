@@ -44,7 +44,40 @@ if I wanted a threesome? my heart whispered yes baby!
 Double You.  
 
 [=POETRIQUE=](http://instagram.com/poetrique)  
-[&copy; Ray Okaah](https://twitter.com/RaysCode)  
+[&copy; Ray Okaah](https://twitter.com/RaysCode)   ::: AUG-03-018  
+
+- - -
+
+## patience
+
+#### clouds
+
+the art, the artist  
+love, and lovers  
+all exist  
+to feel, to be  
+
+the brave  
+should never fear  
+to be free
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: AUG-03-018  
+
+#### soul
+
+never whisper  
+your dreams  
+
+never offer  
+your soul, for  
+no price at all  
+
+it is worth, so  
+much more
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Usheninte](http://twitter.com/Usheninte) ::: AUG-03-018  
 
 - - -
 
