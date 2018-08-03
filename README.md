@@ -13,18 +13,39 @@
     </script>
 </head>
 
-<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/498935088&color=%23ff5500&auto_play=true&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>     
+[read ODD HEARTS](http://bit.ly/read_Odd_Hearts)  
 
-[visit POETRIQUE on Instagram](http://instagram.com/poetrique)     
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/playlists/498935088&color=%23ff5500&auto_play=true&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>  
 
-[read NEONBULLSH_T](https://poetrique.github.io/neonbullsh-t/)     
+[visit POETRIQUE on Instagram](http://instagram.com/poetrique)  
+
+[read NEONBULLSH_T](https://poetrique.github.io/neonbullsh-t/)  
 <!-- ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png) -->
 
-[read The ADHD Chapbook](http://bit.ly/adhd-poetrique)     
+[read The ADHD Chapbook](http://bit.ly/adhd-poetrique)  
 
-[read ODD HEARTS](http://bit.ly/read_Odd_Hearts)     
+[read ODD HEARTS](http://bit.ly/read_Odd_Hearts)  
 
-![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg)     
+![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg)  
+- - -
+
+## Double You
+
+"We" wouldn't be an item  
+if not for the letter "W"...  
+It kinda reminds me of a part of you  
+I can't wait to suckle soon.  
+W and double u are pronounced alike  
+so maybe I should double you.  
+
+Obviously am playing with words here but  
+All I'm tryna say is last night when you asked me  
+if I wanted a threesome? my heart whispered yes baby!  
+Double You.  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ray Okaah](https://twitter.com/RaysCode)  
+
 - - -
 
 ## haiku samurai
