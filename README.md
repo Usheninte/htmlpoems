@@ -26,7 +26,16 @@
 
 [read ODD HEARTS](http://bit.ly/read_Odd_Hearts)  
 
-![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg)  
+![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg)
+
+- - -
+
+## wine games
+
+![wonexo_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_400/v1533673788/htmlpoems/wonexo/wonexo_1.png)  
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Wonexo](http://twitter.com/wonexo)  
+
 - - -
 
 ## Double You
@@ -44,7 +53,7 @@ if I wanted a threesome? my heart whispered yes baby!
 Double You.  
 
 [=POETRIQUE=](http://instagram.com/poetrique)  
-[&copy; Ray Okaah](https://twitter.com/RaysCode)   ::: AUG-03-018  
+[&copy; Ray Okaah](https://twitter.com/RaysCode) ::: AUG-03-018  
 
 - - -
 
@@ -242,7 +251,7 @@ of them, at all, as real
 
 - - -
 
-## This is about you lol 
+## This is about you lol
 
 As I lay down to sleep     
 I suddenly get a glimpse of you      
@@ -377,7 +386,7 @@ that i am old enough to love her now
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Usheninte](http://twitter.com/Usheninte) ::: JUL-10-018     
 
-- - - 
+- - -
 
 ## Ears to the sky
 
@@ -590,7 +599,7 @@ All for the pleasure of fame...
 ..     
 .     
 
-#### 2. Him 
+#### 2. Him
 
 He read my words and understood me     
 The words I didn't understand he understood     
@@ -802,7 +811,7 @@ will this gravitated pain, ever stop
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe ](http://instagram.com/poetrique) <i class="em em-honey_pot"></i><i class="em em-fire"></i><i class="em em-honey_pot"></i> 06-04-018    
 
-- - - 
+- - -
 
 #### rooftop
 
@@ -1186,7 +1195,7 @@ for love you dont have
 bye-bye one minute darling    
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018 
+[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018
 
 - - -
 
@@ -1209,7 +1218,7 @@ cause Christ didnt die for eish
 **_thats something_**
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018 
+[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018
 
 - - -
 
@@ -1225,7 +1234,7 @@ if i keep thinking fire insane
 i might pop a mental vein     
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018 
+[&copy; Pipe ](http://instagram.com/poetrique) 04-13-018
 
 - - -
 
@@ -1240,7 +1249,7 @@ am i to be saved
 or be repraved      
 
 [=POETRIQUE=](http://instagram.com/poetrique)      
-[&copy; Pipe ](http://instagram.com/poetrique) 04-09-018 
+[&copy; Pipe ](http://instagram.com/poetrique) 04-09-018
 
 - - -
 
@@ -1484,7 +1493,7 @@ of that ice-cold heart.
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018     
 
-- - - 
+- - -
 
 #### Power to will
 
@@ -1543,7 +1552,7 @@ For it is its own anthem.
 [=POETRIQUE=](http://instagram.com/poetrique)         
 [&copy; apoetpepa ](http://instagram.com/apoetpepa) 03-31-018         
 
-- - - 
+- - -
 
 ## lost heroes
 
@@ -1716,7 +1725,7 @@ _
 [=POETRIQUE=](http://instagram.com/poetrique)      
 [&copy; Pipe](http://instagram.com/poetrique)  03-22-018    
 
-- - - 
+- - -
 
 ## song of modern icarus
 
@@ -2280,7 +2289,7 @@ _
 
 - - -
 
-## SILLY THOUGHTS 
+## SILLY THOUGHTS
 
 Sometimes I feel invisible or like      
 I exist only in someone's subconscious.       
@@ -2327,7 +2336,7 @@ _
 [&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 02-05-018    
 
-- - - 
+- - -
 
 #### mad lullabies
 
@@ -2453,7 +2462,7 @@ _
 [&copy; Pipe /\/|\/\ ](http://instagram.com/poetrique)       
 01-28-018    
 
-- - - 
+- - -
 
 ## choir noir
 
@@ -2632,7 +2641,7 @@ _
 
 ## a boy named ransom
 
-- - - 
+- - -
 
 #### denied
 
@@ -2646,7 +2655,7 @@ and firmly stand tall
 i shall explain my soul no more     
 i shut now the last door     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2667,7 +2676,7 @@ twisted and blistered
 a purple diamond     
 i will earn a galaxy     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2688,7 +2697,7 @@ if i was meant to be happy
 then this numbness in me     
 ought not to be a reality    
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2704,7 +2713,7 @@ not anymore
 i have waited too long     
 at love's door     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2720,7 +2729,7 @@ leave me in my misery
 i am not dark     
 _just the opposite of white_     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2740,7 +2749,7 @@ to shock me
 
 **nothing is ever worth, feeling anything**     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2758,7 +2767,7 @@ falselly accused
 
 from grace     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2773,7 +2782,7 @@ no one can be ready
 my manner is bloody     
 ruddy and cold     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2793,7 +2802,7 @@ i gamble with machinations
 foster calculations     
 just so, i do not feel like **_sheep_**
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2817,7 +2826,7 @@ i stood at her pulpit
 **_i can never serve_**     
 **_the god king of love_**     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2831,7 +2840,7 @@ of life: reality tutors me
 i obey my teacher alone     
 i cannot stop      
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2847,7 +2856,7 @@ an unwilling third
 
 i still cannot share my love     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
@@ -2860,15 +2869,15 @@ i am fuzzy inside
 but never show it     
 my pain must turn to profit     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
 - - -
 
-## premium 
+## premium
 
 - - -
 
-#### fired 
+#### fired
 
 i Need No muse    
 i have dropped every ruse     
@@ -2877,9 +2886,9 @@ i am
 i am     
 ... ... mad aNd bold     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 #### the blessed
 
@@ -2895,9 +2904,9 @@ or vaiN
 from Needless mirth    
 arouNd me, refraiN     
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 #### capitalized N
 
@@ -2911,13 +2920,13 @@ visioNary
 flyiNg across a cloud    
 Noir aNd full of storms    
 
-[&copy; POETRIQUE](http://instagram.com/poetrique) 
+[&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 [![ampersand-online](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_500/v1510499535/htmlpoems/ampersand_poetrique.png)](http://bit.ly/Ampersand-Online)
 
-[read AMPERSAND online](http://bit.ly/Ampersand-Online) 
+[read AMPERSAND online](http://bit.ly/Ampersand-Online)
 
 - - -
 
@@ -2929,7 +2938,7 @@ out of place
 
 not joy, not anger   
 truly not even **_pain_**   
- 
+
 [&copy; POETRIQUE](http://instagram.com/poetrique)   
 
 - - -
@@ -2947,7 +2956,7 @@ i can not sleep
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)   
 
-- - - 
+- - -
 
 ## 2 shots
 
@@ -3000,7 +3009,7 @@ you sober fighter
 
 do not hesitate   
 take what is left   
-   
+
 **do your best**   
 
 pass the test   
@@ -3012,7 +3021,7 @@ get high on your soul
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)   
 
-- - - 
+- - -
 
 #### ratatata
 
@@ -3040,7 +3049,7 @@ of pain sweet
 effortlessly, i cut   
 through souls   
 like they are butter   
-   
+
 **_yet still, though_**   
 **_my heart is a gutter_**   
 
@@ -3074,7 +3083,7 @@ she is more with me
 - - -
 
 #### aim
- 
+
 she wore a dress   
 colder than reality   
 
@@ -3186,11 +3195,11 @@ are not oft recalled
 
 - - -
 
-## who i need to be 
- 
+## who i need to be
+
 - - -
 
-#### a man 
+#### a man
 
 first and foremost   
 thus, i need a companion   
@@ -3238,7 +3247,7 @@ blunt and free
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 #### deaf man words
 
@@ -3262,7 +3271,7 @@ cold words
 
 - - -
 
-## last page 
+## last page
 
 no more stories       
 to tell     
@@ -3296,7 +3305,7 @@ you are all you require
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 ## cobain
 
@@ -3569,7 +3578,7 @@ full of **melanin**
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 ## impatient
 
@@ -3724,7 +3733,7 @@ i know too well
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 #### john constantine
 
@@ -3741,7 +3750,7 @@ leave me be
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 #### catwoman
 
@@ -3832,7 +3841,7 @@ absence
 _*_  
 emptiness    
 _*_  
-empathy 
+empathy
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
@@ -3858,7 +3867,7 @@ that is nothing
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 ## cold poetry
 
@@ -3945,7 +3954,7 @@ never learn
 
 [&copy; POETRIQUE](http://instagram.com/poetrique)
 
-- - - 
+- - -
 
 #### the way
 

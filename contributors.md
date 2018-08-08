@@ -11,7 +11,7 @@
 
 > ## 2. Ndindy
 [=POETRIQUE=](http://instagram.com/poetrique)  
-[&copy; ndindy ](https://www.instagram.com/n_d_yy_/) ::: XX-XX-018 
+[&copy; ndindy ](https://www.instagram.com/n_d_yy_/) ::: XX-XX-018
 
 > ## 3. Milzapoet
 [=POETRIQUE=](http://instagram.com/poetrique)  
@@ -28,3 +28,7 @@
 > ## 6. Ray Okaah
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; Ray Okaah](https://twitter.com/RaysCode)   ::: XX-XX-018  
+
+> ## 7. Wonexo
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Wonexo](http://twitter.com/wonexo)
