@@ -34,7 +34,7 @@
 
 ![wonexo_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_400/v1533673788/htmlpoems/wonexo/wonexo_1.png)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
-[&copy; Wonexo](http://twitter.com/wonexo)  
+[&copy; Wonexo](http://twitter.com/wonexo) ::: AUG-08-018
 
 - - -
 
