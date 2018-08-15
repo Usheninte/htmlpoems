@@ -30,6 +30,23 @@
 
 - - -
 
+## I am YOU with a different name
+
+When I look at a child, my baby I see...  
+
+Thoughts of my parents come alive  
+when I'm in a space with the elderly...  
+
+But whenever I see a young man or woman,  
+I see myself with a different name and face.  
+I see the image of  
+a boy or girl that could have been me…  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ray Okaah](https://twitter.com/RaysCode) ::: AUG-15-018  
+
+- - -
+
 ## wine games
 
 ![wonexo_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,q_auto:best,w_400/v1533673788/htmlpoems/wonexo/wonexo_1.png)  
