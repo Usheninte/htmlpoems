@@ -3,7 +3,7 @@
 
 > ## * Usheninte
 [=POETRIQUE=](http://instagram.com/poetrique)  
-[&copy; Usheninte](http://twitter.com/Usheninte) ::: XX-XX-018  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: XX-XX-018  
 
 > ## 1. Mambo
 [=POETRIQUE=](http://instagram.com/poetrique)  

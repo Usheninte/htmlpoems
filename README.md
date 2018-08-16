@@ -30,6 +30,28 @@
 
 - - -
 
+## deviant developer
+
+i am a coder, **yes**  
+me no like stress, **yes**  
+
+man used to be  
+_might mighty anxious_  
+used to hunt steady  
+
+i am a coder, **yes**  
+me no like stress, **yes**  
+
+i need no more  
+to smoke, or fear  
+i can still be different  
+while breathing clean air  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: AUG-16-018  
+
+- - -
+
 ## I am YOU with a different name
 
 When I look at a child, my baby I see...  
