@@ -36,7 +36,7 @@ i am a coder, **yes**
 me no like stress, **yes**  
 
 man used to be  
-_might mighty anxious_  
+_mighty mighty anxious_  
 used to hunt steady  
 for that nicotine fix  
 
