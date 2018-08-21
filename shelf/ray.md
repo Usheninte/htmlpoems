@@ -1,13 +1,3 @@
-Beauty in  the war.
-
-I was told not to trust a soul...
-Made to understand that this place is not my home..
-Indeed so many, so many things I've been sold..
-But your love, your love baby the only thing that keeps me whole.
-
-	-Ray Okaah
-
-
 Hard to stay sane.
 
 So much in my head it's hard to stay sane... 
