@@ -30,6 +30,28 @@
 
 - - -
 
+## terminal maestro
+
+I am a different kind of person  
+I think in color, and breathe in static  
+My people are **electric**  
+
+We come from the planet  
+... after Pluto, and  
+love machines beautiful  
+We have _souls_ prone to changes  
+When we push and pull our hearts  
+
+We are of the race, digital && bohemian  
+I am a coder, my lovers are alien  
+
+CTRL+C : that is all  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: AUG-22-018 
+
+- - -
+
 ## Beauty in  the war
 
 I was told not to trust a soul...  
