@@ -31,7 +31,7 @@
 - - -
 
 ## To My Crush
-![pj_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065174/htmlpoems/paul_joe/pj_1.jpg)
+![pj_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065174/htmlpoems/paul_joe/pj_1.jpg)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; PeeJay](https://twitter.com/peejay41) ::: SEP-12-018  
 
