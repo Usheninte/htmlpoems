@@ -30,6 +30,64 @@
 
 - - -
 
+## To My Crush
+![pj_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065174/htmlpoems/paul_joe/pj_1.jpg)
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; PeeJay](https://twitter.com/peejay41) ::: SEP-12-018  
+
+- - -
+
+## offline
+
+#### Highways
+
+heading to the city  
+coming from the jungle  
+I will be a King  
+do you not hear  
+my words rumble  
+
+the road is not the journey  
+the path is not the way  
+I know this, and can say  
+much more  
+but not today  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-12-018  
+
+#### Non
+
+yes, indeed  
+I know what I need  
+not belief alone  
+I have planted the seed  
+
+yes, indeed  
+I know why I bleed  
+not for joy alone  
+but for the war ahead  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-12-018  
+
+#### Her Words
+
+his mind is sweet  
+it tastes like  
+wine and poetry  
+fire and history  
+
+his soul is something  
+else entirely  
+wild, yet sweet still  
+it could build or kill  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-12-018  
+
+- - -
+
 ## Hard to stay sane
 
 So much in my head  

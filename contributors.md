@@ -31,4 +31,8 @@
 
 > ## 7. Wonexo
 [=POETRIQUE=](http://instagram.com/poetrique)  
-[&copy; Wonexo](http://twitter.com/wonexo)
+[&copy; Wonexo](http://twitter.com/wonexo) ::: XX-XX-018  
+
+> ## 8. Paul Joe
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; PeeJay](https://twitter.com/peejay41) ::: XX-XX-018  
