@@ -30,6 +30,28 @@
 
 - - -
 
+## best version
+![wonexo_2](http://res.cloudinary.com/poetrique/image/upload/v1536065958/htmlpoems/wonexo/wonexo_2.png)  
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Wonexo](http://twitter.com/wonexo) ::: SEP-14-018  
+
+- - -
+
+## I love JavaScript
+
+that yellow streak  
+on my G*thub repo  
+gives me joy  
+makes me leap  
+
+i am a warrior  
+of the digital order  
+i will master this sword  
+before lifting any other  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-14-018  
+
 ## To My Crush
 ![pj_1](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065174/htmlpoems/paul_joe/pj_1.jpg)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
