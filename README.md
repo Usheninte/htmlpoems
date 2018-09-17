@@ -30,6 +30,24 @@
 
 - - -
 
+## Bad guy
+
+i have never loved  
+i have been loved  
+i have never fought  
+i have been fought for  
+
+i am white gold  
+and my lovers are the
+night sky
+... breaking every rule
+i am rare and bold
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-17-018
+
+- - -
+
 ## best version
 ![wonexo_2](http://res.cloudinary.com/poetrique/image/upload/v1536065958/htmlpoems/wonexo/wonexo_2.png)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
