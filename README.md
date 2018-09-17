@@ -30,6 +30,12 @@
 
 - - -
 
+## With You
+![pj_2](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065173/htmlpoems/paul_joe/pj_2.jpg)
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; PeeJay](https://twitter.com/peejay41) ::: SEP-17-018  
+- - -
+
 ## Bad guy
 
 i have never loved  
@@ -38,10 +44,10 @@ i have never fought
 i have been fought for  
 
 i am white gold  
-and my lovers are the
-night sky
-... breaking every rule
-i am rare and bold
+and my lovers are the  
+night sky  
+... breaking every rule  
+i am rare and bold  
 
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-17-018
