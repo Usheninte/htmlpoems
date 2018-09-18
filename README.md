@@ -43,7 +43,7 @@ I take what's mine
 I hustle & break hearts  
 
 [=POETRIQUE=](http://instagram.com/poetrique)  
-[&copy; Ninté](http://twitter.com/Usheninte) ::: XX-XX-018  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-18-018  
 
 - - -
 
