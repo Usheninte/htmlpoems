@@ -30,8 +30,25 @@
 
 - - -
 
+## Night
+
+to each his own  
+to birds, flight  
+to gods, night  
+to men, fright  
+
+when you the sun falls  
+I rise up, I take off  
+I take what's mine  
+I hustle & break hearts  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: XX-XX-018  
+
+- - -
+
 ## With You
-![pj_2](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065173/htmlpoems/paul_joe/pj_2.jpg)
+![pj_2](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1536065173/htmlpoems/paul_joe/pj_2.jpg)  
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; PeeJay](https://twitter.com/peejay41) ::: SEP-17-018  
 - - -
