@@ -30,6 +30,24 @@
 
 - - -
 
+## King Talk
+
+move like you speak  
+man is a lion  
+not a mouse  
+so man will no longer squeak  
+
+pride, this is not  
+hide, I can not  
+for my destiny is more ablaze  
+than the tip of the sun  
+in the sky
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-19-018  
+
+- - -
+
 ## Night
 
 to each his own  
