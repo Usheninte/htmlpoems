@@ -30,6 +30,32 @@
 
 - - -
 
+## I Said
+
+I am not a player  
+I am a lover  
+who happens to like games  
+
+no two hearts are the same  
+you sing out my name  
+when we dance the dance  
+of the moon and the stars  
+
+I only want warm love  
+yoou said, I said  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-20-018  
+
+- - -
+
+## rule your world
+![wonexo_3](http://res.cloudinary.com/poetrique/image/upload/v1536065971/htmlpoems/wonexo/wonexo_3.png)  
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Wonexo](http://twitter.com/wonexo) ::: SEP-20-018  
+
+- - -
+
 ## King Talk
 
 move like you speak  
@@ -41,7 +67,7 @@ pride, this is not
 hide, I can not  
 for my destiny is more ablaze  
 than the tip of the sun  
-in the sky
+in the sky  
 
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-19-018  
