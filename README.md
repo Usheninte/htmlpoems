@@ -42,7 +42,7 @@ when we dance the dance
 of the moon and the stars  
 
 I only want warm love  
-yoou said, I said  
+you said, I said  
 
 [=POETRIQUE=](http://instagram.com/poetrique)  
 [&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-20-018  
