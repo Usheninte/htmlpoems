@@ -30,6 +30,26 @@
 
 - - -
 
+## Vulnerable
+
+I will up open  
+being successful and alone  
+is painful, stressful  
+you can not know  
+how it hurts  
+... to the bone  
+
+I need no pity  
+I need no love  
+all I want is warmth  
+a heart to nurse my mind  
+and comfort  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-20-018  
+
+- - -
+
 ## I Said
 
 I am not a player  
