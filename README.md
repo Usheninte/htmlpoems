@@ -30,9 +30,26 @@
 
 - - -
 
+## Pretty
+
+I need me a poet  
+a pretty rose  
+black, with a heart  
+and skin of gold  
+
+to walk with me as  
+I will conquer oblivion  
+someone, bold  
+wise enough to love truly  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-22-018  
+
+- - -
+
 ## Vulnerable
 
-I will up open  
+I will open up  
 being successful and alone  
 is painful, stressful  
 you can not know  
