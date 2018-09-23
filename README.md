@@ -30,6 +30,27 @@
 
 - - -
 
+## Understand
+
+we are odd  
+as a glitch rainbow  
+that's why, queens  
+dream, when we say so  
+
+we am digital Freuds  
+our mentality  
+is hot as fuego  
+our spirituality is firm  
+you must know  
+
+we are the children  
+of tomorrow  
+
+[=POETRIQUE=](http://instagram.com/poetrique)  
+[&copy; Ninté](http://twitter.com/Usheninte) ::: SEP-23-018  
+
+- - -
+
 # We Are At 4K Lines
 
 ![htmlPoems_4K](https://res.cloudinary.com/poetrique/image/upload/v1537597982/htmlpoems/htmlPoems_4K.png)  
