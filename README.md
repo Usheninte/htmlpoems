@@ -3,15 +3,18 @@
     <link href="https://afeld.github.io/emoji-css/emoji.css" rel="stylesheet">
 </head>
 
+# [htmlpoems.com](https://usheninte.github.io/htmlPoems/)
+## [new Web app](https://usheninte.github.io/htmlPoems/)
+
 [visit POETRIQUE on Instagram](http://instagram.com/poetrique)  
 
 [read NEONBULLSH_T](https://usheninte.github.io/neonbullsh-t/)  
-![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png)
+<!-- ![NEONBULLSH_T cover](http://res.cloudinary.com/poetrique/image/upload/c_scale,w_500/v1517942657/NEONBULLSH_T.png) -->
 
 [read The ADHD Chapbook](http://bit.ly/adhd-poetrique)  
 
 [read ODD HEARTS](http://bit.ly/read_Odd_Hearts)  
-![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg)
+<!-- ![Odd-Hearts_COVER](http://res.cloudinary.com/poetrique/image/upload/q_100/v1527885711/htmlpoems/OddHearts.jpg) -->
 
 - - -
 
@@ -22,7 +25,7 @@ as a glitch rainbow
 that's why, queens  
 dream, when we say so  
 
-we am digital Freuds  
+we are digital Freuds  
 our mentality  
 is hot as fuego  
 our spirituality is firm  
