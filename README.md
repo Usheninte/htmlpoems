@@ -3,8 +3,7 @@
     <link href="https://afeld.github.io/emoji-css/emoji.css" rel="stylesheet">
 </head>
 
-# [htmlpoems.com](https://usheninte.github.io/htmlPoems/)
-## [new Web app](https://usheninte.github.io/htmlPoems/)
+# new Web app >>> !! [htmlpoems.com](https://htmlpoems.com)
 
 [visit POETRIQUE on Instagram](http://instagram.com/poetrique)  
 
