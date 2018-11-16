@@ -3,7 +3,7 @@
     <link href="https://afeld.github.io/emoji-css/emoji.css" rel="stylesheet">
 </head>
 
-> My first poetry project. I used **Pipe** & **PIPE ThePoet**, as pen names for both _Music_ and _Poetry_, for some time. Yeah, and my friends call me Ninté.
+> My first poetry project. I used **Pipe** & **PIPE ThePoet**, as pen names for both _Music_ and _Poetry_, for some time. Yeah, and my friends call me **Ninté**.
 
 [visit POETRIQUE on Instagram](http://instagram.com/poetrique)  
 
