@@ -1,6 +1,10 @@
 <head>
     <!-- Emojis -->
     <link href="https://afeld.github.io/emoji-css/emoji.css" rel="stylesheet">
+    <!-- Author -->
+    <meta name="author" content="Usheninte D.">   
+    <!-- Description -->
+    <meta name="description" content="My first poetry project. I used Pipe & PIPE ThePoet, as pen names for both Music and Poetry, for some time. Yeah, and my friends call me Ninté.">   
 </head>
 
 > My first poetry project. I used **Pipe** & **PIPE ThePoet**, as pen names for both _Music_ and _Poetry_, for some time. Yeah, and my friends call me **Ninté**.
